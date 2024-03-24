@@ -1,25 +1,19 @@
 # ImagineCemeteries
- Field manual for people and otherwise who are sick and tired of being sick and tired. 
+ Guide for people and otherwise who are sick and tired of being sick and tired. 
 
- Who 240112 - 
 
-  We are coworkers that have many of the same issues this hospital faces.  We have been working together to find a solution.  We can't change who "we" are or what "wee" do.  We being non-physical people.  But we figured out something important along the way.  
+ Ideas
+   - read this to your spirit guide 
+   - your REAL spirit guides want to help you 
+   - exercises - top 3 people etc 
+
  
- What 240112 - The Dark Cloud - "Spiritual Smog" 
+ Do you hear voices? Are they aggressive, nagging, demeaning or degrading? Are you sick of it? Are you sick of hiding it? Do you want someone to talk to? Do you want to do something about it? Do you want them to just SHUT UP?
 
- The "dark cloud" isn't not dark, you can't see it - but its as big as a cloud.  It is like spiritual smog.  
-    - If you get rid of the dark cloud, everyone feels better.  The good guys, the bad guys, and the ugly guys. 
-    - We can't change anyone's nature, but the dark cloud affects us all.  We can teach you how to get rid of the dark cloud that hangs over us all. 
+Well I'm here to tell you that you CAN do something about it.  And it's EASY.  Just watch this WHOLE video. I found this video while I was looking for YouTube content with cemetaries.  I will be uploading custom content soon, for more information join my facebook group ImagineCemeteries.
 
+Just try imagining a cemetary for the next few minutes.  Set a timer on your phone and try envisioning yourself in a cemetary for 5 minutes.  If you can't remember a cemetary or imagining one is  a struggle for you, try watching this video of a cemetary.  It will be the best self help video you will ever watch. 
 
+Want to know more? Want people to talk to about this secret issue that plauges so many of us?  Join my facebook group for relief, community and details. 
 
-
-
-
-
- How 240302 - Get Rid of the Dark Cloud
-
- Even if you don't get it perfect it still works. Start with yourself first, all you need to do is imagine yourself in a cemetary touching a tree and it works.  Or you can just imagine a cemetary and it still works. 
-
-
-
+This is not a sales venture, I will have donation options available (eventually) but you will never be expected to pay for any content provided by ImageineCemetaries. 
