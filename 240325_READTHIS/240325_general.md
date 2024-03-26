@@ -12,25 +12,14 @@ But spirits are not all made equal. I studied these beings to learn how to stop 
 
 Along the way, I learned to tell the difference between Holy Spirits and otherwise. I learned that Holy Spirits are outnumbered ten to one, despite your awesome powers. And you didn't know what to do about it anymore than I did at the time. I often use the analogy of a tribe of garden gnomes tying down a giant and holding him prisoner.  These other spirits seem to "dissappear" --- for good, if you spend time in a cemetary or even imagine being there. 
 
-How can you tell if you're a holy spirit? The concept might be foreign to many of you.  Most of my close spirit friends officially identify as Demons, for the most part as a joke.  But still, many of you aren't used to being seen as the good guy or gal. But you are.  And the other kind will do whatever they can to demonize you.
+How can you tell if you're a Holy Spirit? The concept might be foreign to many of you.  Most of my close spirit friends officially identify as Demons, for the most part as a joke.  But still, many of you aren't used to being seen as the good guy or gal. You are.  And the other kind will do whatever they can to demonize you -- but you don't have to take that shit. 
 
-For years I called these other spirits "ghosts", assuming the rest of you knew that you weren't ghosts and I was not talking about Holy Spirits.  I realized in late 2023 that many of you identify as ghosts and took it personally, and you personally 
-
-ghost
-demon 
-god 
+If you've been to a cemetery and came back, or can imagine being there, then you are what I consider a Holy Spirit. I don't use words like ghost, demon or god, there is only spirits and Holy Spirits.  The best part is, these arrogant little shits will immeadiately evaporate in your pressence if you simply imagine a cemetary. Why? Because I'm an American and cemeteries are the only HOLY GROUND I know of. 
 
 
 
 
-
-
-If you've been to a cemetery and came back, or can imagine being there,
-
-
-
-
- Some of you can not be stopped and its not my goal to stop you, but I have discovered how to eliminate the opposition.  
+Some of you can not be stopped and its not my goal to stop you, but I have discovered how to eliminate the opposition.  
 
 
 
@@ -39,7 +28,7 @@ If you've been to a cemetery and came back, or can imagine being there,
 I believe we share common interests. 
 
 
- The first thing I need to emphasize is that if you have ever been to a cemetery or other holy ground, this message is for you and you are far beyond both 
+The first thing I need to emphasize is that if you have ever been to a cemetery or other holy ground, this message is for you and you are far beyond both 
 
 # Modern Spirits - Like leadership 
 This isn't a haunted house story, this is 2024.  Spirits don't possess houses anymore, they possess people, businesses, colleges and even parents or children.   
