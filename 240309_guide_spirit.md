@@ -9,11 +9,11 @@ PS - we had a big problem with the "ghost" term in the beginning.  Apparently th
 
 Here's the catch, this doesn't work on *every* spirit, just the most obnoxious ones. Generally the ones that are most aggressive, nagging, demeaning or degrading. Whats left now are your Holy Spirits, your REAL spirit team. Or just very talented human psychics. 
 
+As far as I can tell, obnoxious spirits make up about 90% of our spiritual demography. So in short, I can only help with 90% of the problem. Good luck with the last 10%. 
+
 I use the word Holy Spirit librally, as what's left after imagining the cemetary *can* easily be as aggressive as the other ones, but not typically. What they are though, is immune to this exercise, and more specifically, holy ground. 
 
-As far as I can tell, obnoxious spirits make up about 90% of our spiritual demography. So in short, I can only help with 90% of the problem. Good luck with the last 10%.  
-
-The best part is, if you feel better, your Holy Spirits feel better too. 
+The best part is, if you feel better after watching the video, your Holy Spirits feel better too. 
 
 One more catch, those voices left behind some sort of bad vibes.  I call this the dark cloud or spiritual smog.  Its EASY to get rid of most of the voices, the smog they leave behind though is usually far more time consuming. 
 

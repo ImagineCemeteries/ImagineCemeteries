@@ -11,4 +11,4 @@ The process is the same, just imagine:
     3. Vitamin Shoppe / GNC 
     4. A large, well stocked crystal store 
     5. Pharmacy area of a drug store 
-    6. The periodic table of elements 
+    6. The periodic table of elements
