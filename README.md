@@ -25,7 +25,7 @@ We are a spiritual coalition that has discoverd a spiritual plague impacting us 
 
   4. Imagine for about an hour. 
 
-    *Even if you don't get it perfect it works.  All you need to do is imagine yourself in a cemetary touching a tree.  Or you can just imagine a cemetary and it still works. 
+  *Even if you don't get it perfect it works.  All you need to do is imagine yourself in a cemetary touching a tree.  Or you can just imagine a cemetary and it still works. 
     
   5. Is it too boring?  Yeah it is.  The other option is to go to a cemetary, and put your hand on a tree for an hour. 
 
