@@ -1,25 +1,53 @@
-# ImagineCemeteries
- Guide for people and otherwise who are sick and tired of being sick and tired. 
+# Welcome _Ghosts_ (and Deities)! 
+Are you sick and tired of being sick and tired?
 
+# Welcome Humans! 
+Help your spirit team HELP YOU! Read THIS to your spirit guides!
 
- Ideas
-   - read this to your spirit guide 
-   - your REAL spirit guides want to help you 
-   - exercises - top 3 people etc 
-
+# Who
+We are a spiritual coalition that has discoverd a spiritual plague impacting us all.  The good guys, the bad guys, the ugly guys. We have been working together to find a solution.  It doesn't matter what team you play for, we want YOUR help. 
  
-Do you hear voices? Are they aggressive, nagging, demeaning or degrading? Are you sick of it? Are you sick of hiding it? Do you want someone to talk to? Do you want to do something about it? Do you want them to just SHUT UP?
+ # What - The Dark Cloud - "Spiritual Smog" 
+ The "dark cloud" is not dark, you can't see it - but its as big as a cloud.  It is like spiritual smog.  
 
-Well I'm here to tell you that you CAN do something about it.  And it's EASY.  Just watch this WHOLE video: https://www.youtube.com/watch?v=8ia3tiggDlw
+    - If you get rid of the dark cloud, everyone feels better. Angels, demons, ghosts, spirits, all of us, whatever you identify as. 
+    
+    - We can't change anyone's nature, but the dark cloud affects us all.  We can teach you how to get rid of the dark cloud that hangs over us all. 
 
-I don't have a business and this is not my video, I found this video while I was looking for cemetery YouTube content.  I've discovered that most spiritual incarnations are VERY vulnerable to cemeteries.  Just watching a video of a cemetery can keep them quiet.  I just want to help people who share the same experiences as I've had with irritating spiritual entities. 
+# How - Get Rid of the Dark Cloud
+ We can't change who "we" are or what "we" do.  We being non-physical people, but we would like everyone on all sides to join us & help get rid of this spiritual smog.  This is how you get rid of your own personal dark cloud: 
 
-Join us in my BRAND NEW GROUP: https://www.facebook.com/groups/207628412444807 if you are telepathic or you hear the voices of spirits and want to have REAL conversations with REAL people with the same talents. 
+    1. First you have to imagine a tree in a cemetary, the tree is IMPORTANT.
 
-Our experiences may differ, but if you can watch the video for 20 minutes you should feel immense relief. This is a work in progress, and I need YOUR feedback to help others.  Join my group ImagineCemeteries for more info, questions, feedback and even complaints.  
+    2. Lay your hand on the tree in the cemetary. 
 
-I am working on developing custom content.  Thank you for your participation, I feel your struggle. I will be uploading my own cemetery exploration video's soon, for more information join my group ImagineCemeteries.
+    3. Imagine the cemetary around the tree.  Expand as far as possible.
 
-Want to try this without a crutch? Next time you hear a voice you don't want to hear, just try imagining a cemetary for the next few minutes.  Set a timer on your phone and try envisioning yourself in a cemetary for 5 minutes.  If you can't remember a cemetary or imagining one is  a struggle for you, try watching this video of a cemetary.  It will be the best self help video you will ever watch. 
+    4. Imagine for about an hour. 
 
-This is not a sales venture, I will have donation options available (eventually) but you will never be expected to pay for any content provided by ImageineCemetaries. 
+      *Even if you don't get it perfect it works.  All you need to do is imagine yourself in a cemetary touching a tree.  Or you can just imagine a cemetary and it still works. 
+    
+    5. Is it too boring?  Yeah it is.  The other option is to go to a cemetary, and put your hand on a tree for an hour. 
+
+    6. Isn't that _also_ boring?  No! Its NOT!  It was just kind of weird to open with. You don't have to concentrate, if you stay the whole hour you'll feel amazing. 
+
+This has never not worked for us, so assuming you tried it you should be feeling a lot better now. 
+
+The dark cloud is a spiritual plague, it is contagious and you will probably get reinfected, _especially_ from the areas you return to. Its basically everywhere in Florida, so you are probably going to go right back to where you got it from. We recommend taking a spiritual "shower" every day in the cemetary, in person.  If you happen to avoid all other big dark clouds, the effect lasts about 3 months (because you will probably pick up little ones as you go about your life). It has something to do with electric charges, its an opposites attract type sort of thing.  As a deity you are negatively charged, the dark cloud is positively charged.  Negative is good, toxic positivity bad. 
+
+Also, we recognise that some of you believe you are ghosts.  If you are reading this you are probably _not_ a ghost, but if you fear cemetaries thats why we recomend you just imagine it first.    
+
+PS Humans: TBD
+
+This spiritual smog affects us all, and areas of high pressure move to areas of low pressure; so at first you can't "cure" it, but you can have TREMENDOUS RELEIF. Imagine putting your hands on a tree in a cemetary and keep it there until you feel GREAT.  Do it again everytime you don't feel GREAT. 
+
+# What's next? 
+Well its everywhere, so if you want to change it you'll have to work for it. 
+
+    1. Start with yourself first, we recommend going in person.
+
+    2. Well, you can't just stay there forever right?  This is where the *imagine cemetaries exercise* is so important.  You can go anywhere, and if you don't like the way it feels you can imagine a cemetary to make it feel better.  Its just tedious and slow going. 
+
+    3. Teach this to as many people as possible and form TEAMS.  BIG ONES. Do it together! Its easy once you get started.
+
+    4. With a big team, the effect goes much faster, but it will still take you between a few hours and a few days to clear "a zone".  What is a zone?  Well that is a hard thing to measure but we started with a simple house.  Probably not an apartment complex or anything.  Think about someone you care about who always seems to be miserable, start there. 
