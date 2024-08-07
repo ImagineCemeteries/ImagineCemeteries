@@ -10,26 +10,26 @@ We are a spiritual coalition that has discoverd a spiritual plague impacting us 
  # What - The Dark Cloud - "Spiritual Smog" 
  The "dark cloud" is not dark, you can't see it - but its as big as a cloud.  It is like spiritual smog.  
 
-    - If you get rid of the dark cloud, everyone feels better. Angels, demons, ghosts, spirits, all of us, whatever you identify as. 
+- If you get rid of the dark cloud, everyone feels better. Angels, demons, ghosts, spirits, all of us, whatever you identify as. 
     
-    - We can't change anyone's nature, but the dark cloud affects us all.  We can teach you how to get rid of the dark cloud that hangs over us all. 
+- We can't change anyone's nature, but the dark cloud affects us all.  We can teach you how to get rid of the dark cloud that hangs over us all. 
 
 # How - Get Rid of the Dark Cloud
  We can't change who "we" are or what "we" do.  We being non-physical people, but we would like everyone on all sides to join us & help get rid of this spiritual smog.  This is how you get rid of your own personal dark cloud: 
 
-    1. First you have to imagine a tree in a cemetary, the tree is IMPORTANT.
+  1. First you have to imagine a tree in a cemetary, the tree is IMPORTANT.
 
-    2. Lay your hand on the tree in the cemetary. 
+  2. Lay your hand on the tree in the cemetary. 
 
-    3. Imagine the cemetary around the tree.  Expand as far as possible.
+  3. Imagine the cemetary around the tree.  Expand as far as possible.
 
-    4. Imagine for about an hour. 
+  4. Imagine for about an hour. 
 
-      *Even if you don't get it perfect it works.  All you need to do is imagine yourself in a cemetary touching a tree.  Or you can just imagine a cemetary and it still works. 
+    *Even if you don't get it perfect it works.  All you need to do is imagine yourself in a cemetary touching a tree.  Or you can just imagine a cemetary and it still works. 
     
-    5. Is it too boring?  Yeah it is.  The other option is to go to a cemetary, and put your hand on a tree for an hour. 
+  5. Is it too boring?  Yeah it is.  The other option is to go to a cemetary, and put your hand on a tree for an hour. 
 
-    6. Isn't that _also_ boring?  No! Its NOT!  It was just kind of weird to open with. You don't have to concentrate, if you stay the whole hour you'll feel amazing. 
+  6. Isn't that _also_ boring?  No! Its NOT!  It was just kind of weird to open with. You don't have to concentrate, if you stay the whole hour you'll feel amazing. 
 
 This has never not worked for us, so assuming you tried it you should be feeling a lot better now. 
 
@@ -44,10 +44,10 @@ This spiritual smog affects us all, and areas of high pressure move to areas of 
 # What's next? 
 Well its everywhere, so if you want to change it you'll have to work for it. 
 
-    1. Start with yourself first, we recommend going in person.
+  1. Start with yourself first, we recommend going in person.
 
-    2. Well, you can't just stay there forever right?  This is where the *imagine cemetaries exercise* is so important.  You can go anywhere, and if you don't like the way it feels you can imagine a cemetary to make it feel better.  Its just tedious and slow going. 
+  2. Well, you can't just stay there forever right?  This is where the *imagine cemetaries exercise* is so important.  You can go anywhere, and if you don't like the way it feels you can imagine a cemetary to make it feel better.  Its just tedious and slow going. 
 
-    3. Teach this to as many people as possible and form TEAMS.  BIG ONES. Do it together! Its easy once you get started.
+  3. Teach this to as many people as possible and form TEAMS.  BIG ONES. Do it together! Its easy once you get started.
 
-    4. With a big team, the effect goes much faster, but it will still take you between a few hours and a few days to clear "a zone".  What is a zone?  Well that is a hard thing to measure but we started with a simple house.  Probably not an apartment complex or anything.  Think about someone you care about who always seems to be miserable, start there. 
+  4. With a big team, the effect goes much faster, but it will still take you between a few hours and a few days to clear "a zone".  What is a zone?  Well that is a hard thing to measure but we started with a simple house.  Probably not an apartment complex or anything.  Think about someone you care about who always seems to be miserable, start there. 
