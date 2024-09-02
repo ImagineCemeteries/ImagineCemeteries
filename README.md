@@ -41,6 +41,8 @@ PS Humans: TBD
 
 This spiritual smog affects us all, and areas of high pressure move to areas of low pressure; so at first you can't "cure" it, but you can have TREMENDOUS RELEIF. Imagine putting your hands on a tree in a cemetary and keep it there until you feel GREAT.  Do it again everytime you don't feel GREAT. 
 
+# Why cemetaries? 
+
 # What's next? 
 Well its everywhere, so if you want to change it you'll have to work for it. 
 
