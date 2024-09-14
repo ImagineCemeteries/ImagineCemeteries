@@ -25,6 +25,8 @@ Fitness Types / Crunch etc
 New Cybersec People
 scitzophrenics 
 headaches
+scientologists
+witches
 
 # Order / Outline
 Back of the book 
@@ -33,12 +35,11 @@ Epilog
 Ghosts / Voices
 Dark Cloud
 
-Type different types of spiritual entities 
 
 Thinking... Explain ghosts vs deities and ensure the reader knows they are a deity.  Move into Drave / Dark cloud convo, then move on to ghosts. 
 
 Training opportunities
-- Homeless people - the most obvious place to train and experience what were describing is on homeless people. THey have the dark cloud. Big Ones. Its easy to tell because you just feel like garbage around them, you will need a team to clear them, but you can still visit to understand what we're talking about. 
+- hp - the most obvious place to train and experience what were describing is on hp. THey have the dark cloud. Big Ones. Its easy to tell because you just feel like garbage around them, you will need a team to clear them, but you can still visit to understand what we're talking about. 
 
 
 # Types of spirits 
