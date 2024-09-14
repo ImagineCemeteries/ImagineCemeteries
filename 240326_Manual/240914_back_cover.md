@@ -11,7 +11,7 @@ Spiritual warefare has changed. It became subtle, misleading and sneaky -- its t
 
 We have been fighting back and we need your help. 
 
-A dark cloud is not only hanging over your head, it is a sentient spiritual species.  Its surrounding you and infiltrating everything you do.  Destroying you slowly and infecting your mind, your friends, your family, your colleagues.  It is at war with you, and its contagious. 
+A dark cloud is not only hanging over your head, it is a sentient spiritual species.  Its surrounding you and infiltrating everything you do.  Destroying you slowly and infecting your mind, your friends, your family, your colleagues.  It is at war with you, and it's contagious. 
 
 We need you to fight with us.
 
