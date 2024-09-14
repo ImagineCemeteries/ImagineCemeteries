@@ -1,0 +1,31 @@
+Ghosts 
+- arrogant to the point of stupidity 
+- repetitive, can't hold a conversation 
+- possesive
+- just feels bad around them 
+- repeats phrases constantly "Its a simulation" 
+- unable to reason 
+- ghosts want to be served, play god
+- more talkative but simple, repetitive
+- vulnerable to cemetaries 
+- feels heavy, like a weighted blanket 
+- fearless 
+- conformist 
+- endless energy 
+
+Deities 
+- reasonable and logical 
+- very helpful 
+- less talkative 
+- just feels good around them 
+- immune to cemetaries 
+- highly intelligent
+- very powerful 
+- super awesome and super cool 
+- dignified / graceful 
+- weightless - little to no pressure
+- thoughtful 
+- highly individualistic 
+- highly capable 
+- self-reliant 
+- a little tired, beaten 
