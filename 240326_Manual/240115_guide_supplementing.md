@@ -12,3 +12,6 @@ The process is the same, just imagine:
     4. A large, well stocked crystal store 
     5. Pharmacy area of a drug store 
     6. The periodic table of elements
+
+
+    You are supernatural beings with supernatural needs 

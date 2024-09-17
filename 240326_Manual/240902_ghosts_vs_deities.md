@@ -1,3 +1,5 @@
+Deities are just like us. Your spirity team is just like you, intelligent, helpful, but also a little lost some days. 
+
 Ghosts 
 - arrogant to the point of stupidity 
 - repetitive, can't hold a conversation 
@@ -29,3 +31,7 @@ Deities
 - highly capable 
 - self-reliant 
 - a little tired, beaten 
+
+
+Ghosts know who the deities are, but deities don't know who ghosts are 
+Ghosts thinking they are gods and gods thinking they are ghosts 

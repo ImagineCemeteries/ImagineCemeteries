@@ -11,6 +11,8 @@ The dark cloud isn't dark, you can't see it.  Its an analogy for "the dark cloud
 - It is slow moving, if you quickly side step you can move away from it 
 - You can antagonize it to bait it 
 
+# A dark cloud is not only hanging over your head, it is a sentient spiritual species. 
+
 cord (cord cutting)
 rope 
 string
@@ -65,3 +67,19 @@ Primary motive is capturing as many people as possible in the "net"
 The dark cloud is contagious, spending time with afflicted people will "infect" you, and possibly "reinfect" you. All you need to do is establish a spot that you've cleared and imagine being in a cemetary until the bad vibes go away. You can also go to the cemetary directly, it only takes an hour to clear, if that. I am not sure how long it takes by just imaginining, you are in a cemetary, but you can always just go there to wash off. 
 
 Dark cloud creates pressure in the head
+
+
+Haven't mentioned that... some of you don't seem accustomed to meeting each other.  The dark cloud makes you hate each other, getting rid of the dark cloud makes it more possible to cohabitate 
+
+- exceptions in business where many deities have been trained to cooperate but struggle to cohabitate in one person 
+
+
+# 240917 
+three ways the dark cloud manifests 
+- You're stuck in the dark cloud.  It goes where you go, you feel depressed, lethargic and frustrated and you can't escape. It has been going on so long that you think you are ill.  
+- Directly - the dark cloud is actively targeting you.  You feel a pipe like energetic tentacle moving around your head or body.  You can move away from it quickly, but it will catch up to you if you stay in one spot
+- Dieites / ghosts come visit, and have the dark cloud.  This feels like an immense pressure in your head for some reason, but it appears to come from the same place
+
+
+We were told the future would be great but it is bleak.  
+
