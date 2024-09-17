@@ -35,3 +35,11 @@ Deities
 
 Ghosts know who the deities are, but deities don't know who ghosts are 
 Ghosts thinking they are gods and gods thinking they are ghosts 
+
+
+Spiritual entities are all drawn to similar things, power, wealth, influence. 
+
+- we need them to know they are deities not ghosts? 
+- we'll teach you how to eliminate your adversaries 
+
+Secret time.  You're NOT a ghost! 
