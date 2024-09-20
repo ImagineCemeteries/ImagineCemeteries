@@ -8,3 +8,9 @@ Things to look out for:
 Spheres don't need to concentrate to cause pain, but some "deities" can do the same thing.  They need to concentrate, so you have to sit still or lye still for them to do it. 
 
 I have met a lot of deities and most of them are so powerful concentration isn't an issue. But it is for the ones causing the most problems. 
+
+Spiritual attacks are meant to beat people down and keep them there. 
+
+- we need to empower and enable 
+
+Pain mgmt, tingling, pharmacies

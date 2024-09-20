@@ -1,0 +1,4 @@
+- worn out
+- depressed 
+- looking for answers 
+- isolated 

@@ -1,3 +1,7 @@
+# A dark cloud is not only hanging over your head, it is a sentient spiritual species. 
+
+The slice that comes down the center of your head they need to reach in and grab
+
 # The Dark Cloud
 The dark cloud isn't dark, you can't see it.  Its an analogy for "the dark cloud hanging over our heads."
 - The dark clouds are what's holding us back, it makes everything go wrong
@@ -12,6 +16,7 @@ The dark cloud isn't dark, you can't see it.  Its an analogy for "the dark cloud
 - You can antagonize it to bait it 
 
 # A dark cloud is not only hanging over your head, it is a sentient spiritual species. 
+- Hay fever, granny's pillow
 
 cord (cord cutting)
 rope 
