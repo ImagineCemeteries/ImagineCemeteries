@@ -1,6 +1,15 @@
+# 5/16
+My prior company was invaded by a spiritual cybersec gang that carried a spiritual disease. Myself, my human colleagues and my spiritual colleagues where infected to various degrees. We call this the dark cloud. 
+
+The dark cloud has some sentient abilities and is able to manipulate both human & spiritual hosts.  A small set of deities are immune to this disease, notably Ganesh.  The God of Grounding. 
++ ghosts - 10/4/24 
+
 # A dark cloud is not only hanging over your head, it is a sentient spiritual species. 
 
 The slice that comes down the center of your head they need to reach in and grab
+bubble in head 
+- grab it
+- imagine touching a tree in a cemetary 
 
 # The Dark Cloud
 The dark cloud isn't dark, you can't see it.  Its an analogy for "the dark cloud hanging over our heads."
@@ -14,6 +23,8 @@ The dark cloud isn't dark, you can't see it.  Its an analogy for "the dark cloud
 - It appears to be above us and come down through the roof in pipe-like energetic tentacles 
 - It is slow moving, if you quickly side step you can move away from it 
 - You can antagonize it to bait it 
+- it has a connection to YOU, your human, your humans social circle, the other spirits and their spirits too
+- Just an unchecked problem that has been going on for way too long 
 
 # A dark cloud is not only hanging over your head, it is a sentient spiritual species. 
 - Hay fever, granny's pillow
@@ -84,7 +95,12 @@ three ways the dark cloud manifests
 - You're stuck in the dark cloud.  It goes where you go, you feel depressed, lethargic and frustrated and you can't escape. It has been going on so long that you think you are ill.  
 - Directly - the dark cloud is actively targeting you.  You feel a pipe like energetic tentacle moving around your head or body.  You can move away from it quickly, but it will catch up to you if you stay in one spot
 - Dieites / ghosts come visit, and have the dark cloud.  This feels like an immense pressure in your head for some reason, but it appears to come from the same place
+- bubble in your head, grab it and put your hand on a tree in a cemetary
 
 
 We were told the future would be great but it is bleak.  
 
+
+most of you don't want to fight a war, you barely want to get out of bed everyday.
+
+We think the dark cloud is made up of a few different energies.  The majority of that energy is "unholy."  Cemetaries are holy groud, so thats why we think the cemetaries absorb the dark cloud.

@@ -1,10 +1,11 @@
 # To Do
-Torture prevention / Fake illness 
-Supplementing 
-The Drave 
-Types of Spirits 
-Ghosts vs Deities 
-How we can help
+- Torture prevention / Fake illness 
+- Supplementing 
+- The Drave 
+- Working on cliff notes
+- How we can help
+- print and laminate a cliffnotes page
+
 Good Feeling Explanation 
  - The good feeling is an experience that happenes when you get multiple entities to imagine a cemetary together.  It feels like a high but it isn't, its simply the absense of friction, doubt and lethargy. And all the other symptoms that come with the dark cloud.  Means they cleared it. 
 

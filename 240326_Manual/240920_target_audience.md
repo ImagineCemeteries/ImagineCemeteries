@@ -2,3 +2,5 @@
 - depressed 
 - looking for answers 
 - isolated 
+- defensive 
+- ready to raise hell
