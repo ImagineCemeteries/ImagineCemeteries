@@ -1,3 +1,6 @@
+# 241023
+Like being possessed by a depressed, angry slug 
+
 # 5/16
 My prior company was invaded by a spiritual cybersec gang that carried a spiritual disease. Myself, my human colleagues and my spiritual colleagues where infected to various degrees. We call this the dark cloud. 
 
@@ -5,6 +8,9 @@ The dark cloud has some sentient abilities and is able to manipulate both human 
 + ghosts - 10/4/24 
 
 # A dark cloud is not only hanging over your head, it is a sentient spiritual species. 
+
+The dark cloud has aspects of intelligence in its core, but they are gigantic and you can simply get caught up in its field. Its like a slug that crawls around and leaves a trail everywhere it goes, a trail that humans and spirits alike get stuck in.  Now think of it like a cloud that we're all caught in, at the perimeter the dark cloud is like spiriual smog, maybe akin to pollution but worse. 
+- Its like spiritual pollution but worse. 
 
 The slice that comes down the center of your head they need to reach in and grab
 bubble in head 
@@ -23,12 +29,10 @@ The dark cloud isn't dark, you can't see it.  Its an analogy for "the dark cloud
 - It appears to be above us and come down through the roof in pipe-like energetic tentacles 
 - It is slow moving, if you quickly side step you can move away from it 
 - You can antagonize it to bait it 
-- it has a connection to YOU, your human, your humans social circle, the other spirits and their spirits too
+- it has a connection to YOU, your human, your human's social circle, the other spirits and their spirits too
 - Just an unchecked problem that has been going on for way too long 
 
 # A dark cloud is not only hanging over your head, it is a sentient spiritual species. 
-- Hay fever, granny's pillow
-
 cord (cord cutting)
 rope 
 string
@@ -37,7 +41,7 @@ bubble / leaky pipe
 
 When we started this project we were surrounded by various dark clouds so our strategy was more Area of Effect than anything. 
 - THe dark cloud has a tentacle like appendage it can use to move around your head
-- Its as big as a cloud, the tentical i slike a water hose with the other end in a pool 
+- Its as big as a cloud, the tentical is like a water hose with the other end in a pool 
 - The dark cloud is slow, you can quickly move and it takes several seconds for it to catch up to you. 
 - Most of it is outside and above you, the tentacle comes down through the roof in pipe-like energetic tunnels 
 - If you go outside it has a stronger affect on your head because the majority of it is outside 
@@ -47,7 +51,6 @@ When we started this project we were surrounded by various dark clouds so our st
 - It can take humans and deities hostage, manipulating both their thoughts, words, behaviors and actions 
 - If it is big enough, it can completely devour deities - more on this in my manual 
 - It may have a nucleus that is sentient, but it is slow and stupid 
-
 - stacked on top of each other but separate from each other 
 
 # Dark cloud symptoms 
@@ -97,8 +100,6 @@ three ways the dark cloud manifests
 - Dieites / ghosts come visit, and have the dark cloud.  This feels like an immense pressure in your head for some reason, but it appears to come from the same place
 - bubble in your head, grab it and put your hand on a tree in a cemetary
 
-
-We were told the future would be great but it is bleak.  
 
 
 most of you don't want to fight a war, you barely want to get out of bed everyday.
