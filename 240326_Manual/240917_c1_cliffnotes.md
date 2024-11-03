@@ -99,7 +99,7 @@ So how do you _really_ know what you are? I have a chapter dedicated to it, but 
 
 
 # Ghosts, Possesion and their Shadow Society 
-What if your loved ones aren't _completely_ your loved ones, but a collection of personality traits from different entities fighting for control of them?  What if your loved ones barely express theirselves at all, competing for their body and mind and failing most of the time?  What if instead of haunted houses, we have haunted people? And they are haunted by a plethora of ghosts all competing for control? 
+What if your loved ones aren't _completely_ your loved ones, but a collection of personality traits from different entities fighting for control of them?  What if your loved ones barely express themselves at all, competing for their body and mind and failing most of the time?  What if instead of haunted houses, we have haunted people? And they are haunted by a plethora of ghosts all competing for control? 
 
 What if those ghosts are angry, difficult, shallow, spiteful... what if they are everywhere? What if they took over completely?
 
@@ -107,21 +107,17 @@ The spiritual world is overpopulated with a variety of entities, your human's sp
 
 Ghosts are the easiest of all to get rid of. But why would you? 
 
-Houses aren't haunted, people are haunted.  In extreme situations, ghosts are taking hostages, turning extroversion into introversion, like a sort of paranoid schizophrenia or extreme social anxiety.  They whisper negative thougts in your mind, tell you your loved ones and your colleagues are conspiring against you, that the birds and the squirrels are watching you. They taunt you about your memories and your daily experiences, they are the reason that you lay down in bed at night and you can't sleep because suddenly you've got a movie of every mistake or bad experience you've ever had playing in your head. In some caseses they are possessive and will literally hold you hostage in your own home, preventing you from leaving the premises. They also fight each other for control of you, and will punish you if they aren't able to possess you successfully. 
+Houses aren't haunted, people are haunted.  In extreme situations, ghosts are taking hostages, turning extroversion into introversion, like a sort of paranoid schizophrenia or extreme social anxiety.  They whisper negative thougts in your mind, tell you your loved ones and your colleagues are conspiring against you, that the birds and the squirrels are watching you. They taunt you about your memories and your daily experiences, they are the reason that you lay down in bed at night and you can't sleep because suddenly you've got a movie of every mistake or bad experience you've ever had playing in your head. In some caseses they are possessive and will literally hold humans hostage in their own homes, preventing them from leaving the premises. They also fight each other for control of their humans, and will punish thier humans if they aren't able to possess them successfully. 
 
 Those are just ghosts residing with you. 
 
-Ghosts are aweful and they're everywhere, I can't speak for every ghost out there, but they are generally jerks or Karens.  We're talking about entities that are refusing to cross over, its like someone cheated death and taught everyone and their mom how to do it.  At best, they are like the helicopter parents of the afterlife, but all sorts of ghosts from all sorts of places can engage with your human, most of which are working to undermine them for the sake some other person's spirit team.  
+Ghosts are aweful and they're everywhere, I can't speak for every ghost out there, but they are generally jerks or Karens.  We're talking about entities that are refusing to cross over, maybe they made a few mistakes or maybe they've been assholes their whole life, and continue to be assholes in this one.  Either way, they fear judgement and they shouldn't be haunting people let alone taking hostages. Its like someone cheated death and taught everyone and their mom how to do it.  At best, they are like the helicopter parents of the afterlife, but all sorts of ghosts from all sorts of places can engage with your human, most of which are working to undermine them for the sake some other person's spirit team.  
 
 Aside from the worst case scenarios, ghosts form a sort of shadow society.  They want to own you. There are enough of them that have so much control over their human hosts that they litterally live for them, whether the host likes it or not. I'm talking about posssession, possesion so subtle that it could seem like a form of cohabitation.  Their activities are indecernable from other human activities.  The modern ghost isn't going to sit around and haunt your house, they are going to bounce between you and other hosts while you work, raise your family, spend time with your friends, and even join you during your religious practices. They hear through their humans, see through their humans and speak through their humans. 
 
 Many deities are at the wrong end of a choke chain by ghosts.  Ghosts are arrogant, lazy and intimidating and they cause mayhem when they don't get what they want.  They cause mayhem even when they are getting what they want. All you have to do is nothing and they will antagnoize you for life.  They have taken the karma concept to new levels, they think they are invincible and tend to harrass others into serving them.
 
 Think about the top 5 people in your life that drive you crazy.  People who are always wanting something from you, always nagging you, always degrading you.  These people have a high probablility of being possessed by ghosts. 
-
-- If you free your humans they will be grateful that you have freed them even if they don't know who to be grateful to.  They may be happy, at least for a time.  It is a terrible thing to be posssessed for years... they may be happy at first but may also be sad for the time they have lost 
-
-- july 26, august went to vt 8/7, august went to orlando, i trained peopel in orlando to do this with  POST OFFICE girl who we helped 
 
 
 # Round 2: Ghosts
@@ -147,7 +143,7 @@ If you really have to, don't kick yourself just yet, save it for later because w
 # You are supernatural beings with supernatural needs
 When we feel drained, we've found that we can also supplement ourselves directly through our surroundings or indirectly through meditation.  We are supernatural beings with supernatural needs, what is best for the human body isn't enough for us. 
 
-Some may call this "energy vampires", but I disagree. Your kind has the ability to pull nutrients from your surroundings, it is so natural you don't even have to think about it.  So if you are "malnurished", or feeling drained you are naturally going to absorb nurishment from your surroundings, including your humans.  Its imperitive that your people take daily multi-vitamins at minimum. 
+Some may call this "energy vampires", but I disagree. Your kind has the ability to pull nutrients from your surroundings, it is so natural you don't even have to think about it.  So if you are "malnurished", or feeling drained you are naturally going to absorb nurishment from your surroundings, including your humans.  Its imperitive that your humans take daily multi-vitamins at minimum. 
 
 Proactively surrouding yourself with nutritious sources will improve your comfort and mood considerably.  Please take some time out of your day and travel to the following places, spend 5 minutes in each place: 
 
@@ -163,42 +159,35 @@ If you are unable or unwilling to go directly, you can also envision yourself in
 Go over to the spice section, stand in front of it and just take it all in.  If it feels good to you, keep going! Just imagine yourself slowly walking down the aisles of each of the stores above. 
 
 
+
+
+
+
+
+
 # Cemetaries and the Dark Cloud
-In reality, both the ghosts and the dark cloud are vulnerable to cemetaries. Earlier I taught you how to take chunks out of the dark cloud. The dark cloud is comprised of three components that we can sense: 
+Earlier I taught you how to take chunks out of the dark cloud.  It may take days or weeks, but if you are diligent you should be able to eradicate its spiritual field -- the cloud-like spiritual smog. 
 
-    1. The dark cloud's spiritual field
-        - This can be just as big as a cloud in the sky, this is what we are taking "chunks" out of.  We sometimes refer to this as "spiritual smog".  Before we discovered the Drave, eliminating the dark cloud was an endevour that took days, weeks, and even months. 
-        - Typically, the dark cloud just catches you in its web and generally ignores you.
-        - Getting caught in the dark cloud's web leads to lethargy and irritation.  I have speculated that spiritual smog could be the cause of depression. 
-        - Its so big its impossible to escape.
-
-    2. The dark cloud's tentacle 
-        - The dark cloud has an infinite number of appendages that can feel like tentacles or ropes attached to those they have captured.  Generally these are attached to your head, right above the brain stem.  It always seems to come from above, directly above your head. 
-        - It is not permanently attached to you, quick motions such as side stepping or going for a jog will release you from its grasp, but the dark cloud is incessant and pervasive and will catch up to you when you stop. 
-        - water hose
-
-    3. The dark cloud's nucleus 
-        - I am not sure if this can be sensed by everyone, typically, the dark cloud just catches you in its web and generally ignores you. In my case, I was hell bent on destroying it, so during the last days it attacked me violently. 
-        - To the best of my knowledge, after years of spiritual problems, the dark cloud can only cause chest pain. It does this by moving its tentacle from your head down into your chest and creating an energy that is close to a hot iron. The biggest threat that the dark cloud creates is lethargy and frustration, that you generally take out on your peers, friends and relatives. 
-        - I can not emphasize enough that the dark cloud is both our biggest problem and our weakest enemy.  The problem is that they are enourmous, and though I have been reffering to a singular dark cloud, there are many, which often have ropes or attachments in the same humans. 
+Assuming that you got this far, the dark cloud is "naked", it is only comprised of its nucleus and its tentacle.  This is when the dark cloud becomes violent. You may experience strange and painful sensations, especially when you are sitting still for extended periods.  
 
 
-Now that you've been to the drave, the dark cloud is "naked", it is only comprised of its nucleus and its tentacle.  This is when the dark cloud becomes violent. You can expect chest pain 
+# Cemetaries and the Dark Cloud
+The thing about the Drava river is that it is almost instantaneous, as soon as you see it this cloud of nasty energy just drains off of you. The cemetary process is a little different and takes longer than just going for a dip, but it is neccessary for everyone whether you can travel internationally or not. 
 
-
-# Where are we going with this? 
-- you have to go to the cemetary to eliminate the core & tentacle of the dark cloud
-
-
-
-
-
+In reality, both the ghosts and the dark cloud are vulnerable to cemetaries.  
 
 This next step is for everyone, we can't all go to the Drave but you have another option to eliminate the dark cloud. Go to the last cemetary you remember, put your hands on a tree in the cemetary.  The tree is IMPORTANT. Just being in a cemetary doesn't cut it.  Then you need to stay there, for at least 20 mintutes but an hour if you can. 
 
-The thing about the Drava river is that it is almost instantaneous, as soon as you see it this cloud of nasty energy just drains off of you. The cemetary process is a little different and takes longer than just going for a dip, but it is neccessary for everyone whether you can travel internationally or not. 
-
 What I'm teaching you to do here is how to eliminate the dark cloud.  If you spend a whole hour in the cemetary you should come out feeling better than you've felt in years, like a weight lifted off your shoulders.  The end goal is to improve your well being so that you can stand with us and fight.  The process feels like an emotional roller coaster, but if you've followed our instructions its already over.  
+
+
+
+
+
+
+
+
+
 
 # problem
 Here's the test, if you trusted us when we told you to go to the cemetary, you can use that to check your emotions.  Cemetaries are spiritual deadzones, and the dark cloud can't follow you in without being absorbed by the cemetary.  So if you don't feel your best, go to the cemetary and let it all out there. We're betting that some of those feelings are being masterminded by the dark cloud. 
@@ -206,7 +195,6 @@ Here's the test, if you trusted us when we told you to go to the cemetary, you c
 For some reason, if you visit the cemetary in person you come out feeling like a million dollars, but if you meditate on the cemetary you will feel drained. 
 
 # Round 3: Eliminate the Dark Cloud 
-
 - If you start to feel that darkness creeping back in, let it surround and absorb you, let it smother you then fall back to the Drave where possible, the cemetary otherwise.
 
 Or if you are unable to visit the Drave, envision the cemetary:
@@ -314,3 +302,9 @@ The first thing you need to know is that despite the variety of spiritual entiti
 
 # Deities
 Deities are all equipped to inflict a considerable amount of pain, usually manifesting as seizures or what I would call smiting.  There is really nothing you can do to defend yourself outside of medications.  The good part is that the most violent deities tend to be aflicted by the dark cloud, so eliminating the dark cloud may make them more peaceful. 
+
+
+# To Humans
+This may all seem like hot non-sense to you, but this book is designed to connect with the deities on your spirit team and help them help themselves, and YOU. 
+
+My only question is: after reading this, do you feel better? This will help me determine how wide the problem has spread. Please take the time to review me on Amazon, give me 5 stars if you feel better already! 

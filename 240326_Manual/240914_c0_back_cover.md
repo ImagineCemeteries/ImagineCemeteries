@@ -1,7 +1,10 @@
 - Testimonials or endorsements: These can help build credibility for the book and the author. They can be written by someone well-known in the industry, such as another author or editor. 
 - Words of praise: From writing peers.
 
-Under Attack: The Modern Manual for Spiritual Warefare // in a Haunted World
+Under Attack: The Modern Manual for Spiritual Warefare 
+
+// in a Haunted World
+// Winning feels GREAT
 
 Has positive thinking failed you?  Are you sick and tired of being sick and tired? Do you feel like there is a dark cloud hanging over your head?  You're right. 
 
