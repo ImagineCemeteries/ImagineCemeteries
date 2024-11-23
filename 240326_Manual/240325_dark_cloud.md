@@ -1,3 +1,7 @@
+- dark cloud symptoms 
+- ice bath 
+- the dark cloud will try to consume deities, go back and foward between the Drave or a cemetary to slowly drain the dark cloud's energy
+
 # 241023
 Like being possessed by a depressed, angry slug 
 
@@ -105,3 +109,55 @@ three ways the dark cloud manifests
 most of you don't want to fight a war, you barely want to get out of bed everyday.
 
 We think the dark cloud is made up of a few different energies.  The majority of that energy is "unholy."  Cemetaries are holy groud, so thats why we think the cemetaries absorb the dark cloud.
+
+- water hose
+
+# Dark Cloud Characteristics 
+The dark cloud is comprised of three components that we can sense: 
+
+    1. The dark cloud's spiritual field
+
+        - This can be just as big as a cloud in the sky, this is what we are taking "chunks" out of.  We sometimes refer to this as "spiritual smog".  Before we discovered the Drave, eliminating the dark cloud was an endevour that took days, weeks, and even months. 
+
+        - Getting caught in the dark cloud's web leads to lethargy and irritation.  I have speculated that spiritual smog could be the cause of depression. 
+
+        - Its so big its impossible to escape.
+
+    2. The dark cloud's tentacle 
+
+        - The dark cloud has an infinite number of appendages that can feel like tentacles or cords attached to those they have captured.  Generally these are attached to your head, right above the brain stem.  It always seems to come from above, directly above your head. 
+
+        - It is not permanently attached to you, quick motions such as side stepping or going for a jog will release you from its grasp, but the dark cloud is incessant and pervasive and will catch up to you when you stop. Again, its impossible to escape. 
+
+    3. The dark cloud's nucleus 
+
+        - The dark cloud's nucleus is basically its soul, or you can think of it like a brain. But it is slow thinking and slow moving; even if you are afflicted by the dark cloud, it doesn't even know we're talking about it right now. It is sentient, like a cranky senial person.  
+
+        - I am not sure if this can be sensed by everyone, typically, the dark cloud just catches you in its web and generally ignores you. In my case, I was hell bent on destroying it, so during the last days it attacked me violently. 
+
+        - To the best of my knowledge, after years of spiritual problems, the dark cloud can only cause chest pain. It does this by moving its tentacle from your head down into your chest and creating an energy that is close to a hot iron. The biggest threat that the dark cloud creates is lethargy and frustration, that you generally take out on your peers, friends and relatives. 
+
+        - I can not emphasize enough that the dark cloud is both our biggest problem and our weakest enemy.  The problem is that they are enourmous, and though I have been reffering to a singular dark cloud, there are many, each of which can have a tentacle attached to a single human.  Eliminating them is time-consuming. 
+
+What I'm teaching you to do here is how to eliminate the dark cloud.  
+
+Everytime you try this
+- go to the cemetary first 
+- do your meditation 
+- go to the cemetary at the end
+
+
+After going through some of these energetic exercises, you 
+
+This is when the dark cloud can become violent. 
+
+I was attacked by the dark cloud at this point, but I also talked about nothing but how to eliminate the dark cloud for a year -- I believe it understood that I was the source of its destruction. I am not confident that every person in the dark cloud's web will experience the backlash that I did,
+
+I am also not confident that every dark cloud has a tentacle in every person.  You are probably just caught in its spiritual field, so you may not need this step.  You may not ever encounter the dark cloud's tentacle at all. 
+
+
+Let it surround and absorb you, let it smother you then fall back to the Drave.  Eventually you will destroy the majority of it and you can meditate on any stragglers.
+
+Once we can remove the dark cloud, and you are _sure_ its gone, then take the time to feel your feels.  
+
+Assuming that you got this far, the dark cloud is "naked", it is only comprised of its nucleus and its tentacle. 
