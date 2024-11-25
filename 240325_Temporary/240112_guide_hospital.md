@@ -11,7 +11,7 @@
     
     - We can't change anyone's nature, but the dark cloud affects us all.  We can teach you how to get rid of the dark cloud that hangs over us all. 
 
-# How - Get Rid of the Dark Cloud
+# How - Get Rid of the Dark Cloud - X
 
  We would like everyone on all sides to join us & help get rid of this spiritual smog.
 

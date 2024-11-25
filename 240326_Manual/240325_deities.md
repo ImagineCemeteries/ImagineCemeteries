@@ -50,3 +50,11 @@ Deities that can travel vs deities that can not
 - such as comparing someone who has exsisted 1000 years to someone who has exsisted 200
 
 Think about the top 5 people in your life that drive you crazy.  People who are always wanting something from you, always nagging you, always degrading you.  These people have a high probablility of being possessed by ghosts. 
+
+Deities - Another significant difference between deities is that they don't target your head. 
+
+
+Deities - The majority of deities are highly intelligent, very reasonable and open-minded, laid back and permissive.  Independant. Ambient electricity, tingling, static electricity 
+
+    - toxic positivity 
+    - vibing too high  

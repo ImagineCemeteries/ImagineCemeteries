@@ -3,18 +3,6 @@ In this guide, I will teach you
 - The ONE message everyone needs to hear: Imagine Cemetaries
 - pop spheres
 
-# Exercises Summary
-# Round 1: The Drave & the Dark Cloud
-    - visit the drave, meditate on the drave 
-# Ghosts, Possesion and their Shadow Society
-    - Think about the top 5 people in your life that drive you crazy.  People who are always wanting something from you, always nagging you, always degrading you.  These people have a high probablility of being possessed by ghosts. 
-# Round 2: Ghosts
-    - visit the cemetary, meditate on the cemetary
-    - imagine the cemetary on your human, in their home
-    - imagine the cemetary on your human, at their job 
-# You are supernatural beings with supernatural needs
-    - meditate on nutritious sources 
-
 
 # Intro
     - this book is just 30 pages, the rest is an appendix
@@ -50,13 +38,19 @@ In this guide, I will teach you
 # Feel better _right now_ 
 # You are supernatural beings with supernatural needs
 # Round 3: The Dark Cloud's Core
+
+#  <<<<<<<<<<<<<<< To do >>>>>>>>>>>>>>>
 # Types of Entities and How They Hurt
     - deities
     - sparkler sensation
 # Our common enemies // and how to destroy them
 # Torture Prevention
 # To Humans
-
+# anything about sleep? 
+    - kill the ghosts 
+    - then pray or ask nicely 
+    - Why don't you try to explain productivity & sleep? 
+    - some of them don't care.  I'd be lucky if mine care.  But, I'm not really putting my best foot forward.  To convince them, I would have to spring up every day and kill it. I'm just not
 # Audience / Deities 
     - Secret time!  I wrote this book to deities
     - We have to convince these people they are deities and there is a way to help people that doesn't mean breaking their backs 
@@ -78,7 +72,20 @@ In this guide, I will teach you
     - seizures / smiting
 
 
+# Exercises Summary
+# Round 1: The Drave & the Dark Cloud
+    - visit the drave, meditate on the drave 
+# Ghosts, Possesion and their Shadow Society
+    - Think about the top 5 people in your life that drive you crazy.  People who are always wanting something from you, always nagging you, always degrading you.  These people have a high probablility of being possessed by ghosts. 
+# Round 2: Ghosts
+    - visit the cemetary, meditate on the cemetary
+    - imagine the cemetary on your human, in their home
+    - imagine the cemetary on your human, at their job 
+# You are supernatural beings with supernatural needs
+    - meditate on nutritious sources 
 
+# Torture Prevention
+    - headaches 
 
 
 
@@ -191,7 +198,7 @@ The spiritual world is overpopulated with a variety of entities, your human's sp
 
 Ghosts are the easiest of all to get rid of. But why would you? 
 
-Houses aren't haunted, people are haunted.  In extreme situations, ghosts are taking hostages, turning extroversion into introversion, like a sort of paranoid schizophrenia or extreme social anxiety.  They whisper negative thougts in their minds, tell them their loved ones and their colleagues are conspiring against them, that the birds and the squirrels are watching them. They taunt them about their memories and their daily experiences, they are the reason that your humans lay down in bed at night and can't sleep because suddenly they've got a movie of every mistake or bad experience they've ever had playing in their head. In some caseses they are possessive and will literally hold humans hostage in their own homes, preventing them from leaving the premises. They also fight each other for control of your humans, and will punish your humans if they aren't able to possess them successfully. 
+Houses aren't haunted, people are haunted.  In extreme situations, ghosts are taking hostages, turning extroversion into introversion, like a sort of paranoid schizophrenia or extreme social anxiety.  They whisper negative thougts in their minds, tell them their loved ones and their colleagues are conspiring against them, that the birds and the squirrels are watching them. They taunt them about their memories and their daily experiences, they are the reason that your humans lay down in bed at night and can't sleep because suddenly they've got a movie of every mistake or bad experience they've ever had playing in their head. In some caseses ghosts are possessive and will literally hold humans hostage in their own homes, preventing them from leaving the premises. They also fight each other for control of your humans, and will punish your humans if they aren't able to possess them successfully. 
 
 Those are just ghosts residing with you. 
 
@@ -215,7 +222,7 @@ Think about the top 5 people in your life that drive you crazy.  People who are 
 
 
 # Feel better _right now_ 
-Earlier I mentioned that one of our goals is to make you feel better.  Why?  First of all, we just want you to feel better. You're one of us and we've been there. You don't only deserve to feel better, you _have_ to feel better to help us unfuck this.  We _need_ your help.  Cleaning up this mess is punishment enough as it is. 
+Earlier I mentioned that one of our goals is to make you feel better.  Why?  Well first of all, we just want you to feel better. You're one of us and we've been there. You don't only deserve to feel better, you _have_ to feel better to help us unfuck this.  We _need_ your help.  Cleaning up this mess is punishment enough as it is. 
 
 Second of all, we're really not trying to take anyone's pain away. Sometimes when you feel bad you just need to feel it somehow, and it can be offensive to run into a bunch of people telling you "just don't feel bad."  But hear us out, we think the dark cloud is responsible for _making_ you feel bad; moreso than you would on your own.  A few of the symptoms of being surrounded by the dark cloud are irritability, angst, dispair and in many cases spiritual violence. 
 
@@ -263,12 +270,15 @@ So how to get rid of it?  In reality, both the ghosts and the dark cloud are vul
 
 This process works, but it is very time-consuming.  It might take days or weeks if you are doing it by yourself. 
 
-I wrote this book to eliminate the dark cloud as quickly as possible, before it can realize what is happening. You may have noticed that initially I didn't give you much context on why you should visit the Drave or what the dark cloud is.  I didn't want it to understand that we were going to destroy it, I just wanted you to get to the Drave or the cemetary as quickly as possible.  It can also see through you and hear through you, but initially, its too slow to realize we're talking about it, and otherwise its too arrogant to believe we can annihilate it.  
+I wrote this book to eliminate the dark cloud as quickly as possible, before it can realize what is happening. You may have noticed that initially I didn't give you much context on why you should visit the Drave or what the dark cloud is.  I didn't want it to understand that we were going to destroy it, I just wanted you to get to the Drave or the cemetary as quickly as possible.  It can also see through your human and hear through your human, but initially, its too slow to realize we're talking about it, and otherwise its too arrogant to believe we can annihilate it.  
 
 If the dark cloud has a tentacle in your human, it can become violent if it realizes that you intend to destroy it.  You may experience strange and painful sensations, especially when you are sitting still for extended periods.  It can move from the brainstem into the chest, where it can cause tightness and severe chest pain.  If this happens, you can reach into your human's body, where the pain is, and grab the "tail" of the tentacle, which eases the pain.  Then you can meditate on the cemetary to slowly drain it away. 
 
 If the dark cloud gets to the point where it is causing chest pain, you can use a trick to proove that the pain is spiritual in nature.  The dark cloud is _incredibly_ slow, its biggest advantage is it size. If it gets down to just the core and the tentacle, you may notice that you are only feeling discomfort when you are sitting or standing still.  Stand up and consider the sensations in your body, you may feel pressure on your head or in your chest.  Now _quickly_ take a big side step, you will notice that the discomfort is momentarily gone.  Now if you stay still, you should start to feel a pressure on top of your head coming from the direction you were standing.  Stay still and consider the sensation of the dark cloud "catching" you again. 
 
+At home, you can't outrun the dark cloud.  It will follow you to every room and may even feel more extreme outside, where there is no roof between you and the dark cloud.  But it tends to hover in the same vicinity, such as your home. So say if you went out and did some errands, went to the gym, things like that, you will feel relief as long as you don't encounter other dark clouds.  But all that is meaningless if you go home and are suddenly uncomfortable, lethargic and gloomy.
+
+You have to destroy it via meditating on the Drave and the cemetary.  Its the only way we know of.  It takes a while, but what is a few weeks compared to a few years?  The peace, satisfaction and freedom you and your human will feel after the dark cloud's elimination is indescribable. 
 
 
 
@@ -289,69 +299,41 @@ If the dark cloud gets to the point where it is causing chest pain, you can use 
 
 
 # Types of Entities and How They Hurt
-Any entity you encounter inflicts pain with just plain electricity, there is no magic about it aside from their ability to summon it on a whim.  The most basic description of electricity is that there are positive and negative charges, the only thing you need to know is that positive charges cause significant pain where ever it targets you.  We have 6 entities we can recognize and define, all six of them are using the same tactic to cause pain and discomfort. 
+Throughout my spiritual experiences I have encountered a variety of entities, most of which are harmful.  We're all familiar with dieties and ghosts, either from legend or personal experience, but there are a few more unique entities that you may encounter more frequently. 
 
-Deities - While generally well meaning, deities have a problem with static electricity.  Let's say that a spiritual deity has a negative charge, positively charged electricity is attracted to their spiritual body. This is fine for them, but if they happen to visit you you may feel an uncomfortable tingling sensation.  It may cause you to shake or tremble, and the effect is amplified if you have a few deities hanging out with you. Working, raising a family, helping friends and relatives 
+Any entity you encounter inflicts pain with just plain electricity, there is no magic about it aside from their ability to summon it on a whim.  The exception to this is the dark cloud's energy field, I wouldn't describe it as energy measured in the form of positive and negative, but we don't have the vernacular to define it acurately.  "Spiritual smog" is the term that is the most accurate so far, but in the future we may understand more about this entity and clarify its definition. 
 
+The most basic description of electricity is that there are positive and negative charges, the only thing you need to know is that positive charges cause significant pain where ever it targets you.  We have 6 entities we can recognize and define, all six of them are using the same tactic to cause pain and discomfort. 
 
-Deities - I define deity as any ghost like spiritual form that can survive a cemetary, but there is some diversity in this category that I will expand on in the deity appendix.  Some of them are far more powerful than others, and if you draw their wrath they are unstoppable.  This basically means smiting. An energy beam hitting you like a lightning bolt that can be sustained for hours. It can be slow and deliberate as well, precision targeting any area of your body. Luckily, they are a lot harder to provoke than any other spiritual entity. 
-
-
-
-
-- Your Kind and Other Kinds 
-- pay attention to the head 
-- electricity 
-
-
-
-Throughout my spiritual experiences I have encountered a variety of entities, most of which are harmful.  We're all familiar with dieties and ghosts, either from legend or personal experience, but there are a few more unique entities that you may encounter more frequently. Below I've breifly summarized the entities I've encountered...
-
-Deities 
-    - ambient electric feild 
-    - seizures 
-    - when people stack 
-    - its not your energy field, it doesn't come from you, its _attracted_ to you like positives and negatives attract 
-    - toxic positivity 
-    - vibing too high   
-
-Ghosts - Ghosts can be all over the board, just like any human.  The ones that cause the most trouble can coordinate amongst themselves and strategize to cause suffering.  They are intelligent, but the worst ones are more like a gang of 14y old boys playing call of duty. 
-
-The Dark Cloud - The dark cloud casts a wide net and will generally ignore you unless you are a person of power or influence, or a threat, then you may have other sensations such as the tentacle feeling or chest tightness or pain.  This is not accidental, the dark cloud wants you to feel pain. 
-
-The dark cloud's spiritual field is made up of something that cannot be measured as positive or negative 
+The Dark Cloud - The dark cloud casts a wide net and will generally ignore you unless you are a person of power or influence, or a threat, then you may have other sensations such as the tentacle feeling or chest tightness or pain.  Though the dark cloud doesn't cause as much pain as other entities do, I can not emphasize enough that it is our worst enemy.  The dark cloud creates sensations of lethargy, dispair, irritability, irrationality, discord and friction.  These sensations affect humans, ghosts and deities  and drive wedges between anyone and everything.  Aside from chest pain, living within the boundries of a dark cloud creates feelings of pressure, like wearing a weighted blanket every day or feeling like your head is caving in. 
 
 Spheres - We chose this word because Orbs were already taken, there are plenty of YouTube videos on Orbs, essentially any glowing spherical object.  I have never encountered an Orb but I believe they are highly dangerous. What I'm defining as spheres are not visible to the human eye.  They are between the size of marbles and golf balls and they cause pain where ever they touch you, such as giving you headaches if they are in your head or giving you cramps if they are in your abdomin. 
 
-Spheres with spikes - Similar to spheres but even more aggressive.  They give the sensation of something spinning very quickly 
+Spheres with spikes - Similar to spheres but even more aggressive.  They give the sensation of something spinning very quickly, like a ball of barbed wire in your head. 
 
+Sparkler - this does not seem to be a sentient entity at all.   It doesn't respond when you talk about it, or seem to intensify its aggression at all.  It is a term for a feeling that starts from the brain stem and sort of sparks outward.  Deities will have to be very observant to detect them, but they cause intense confusion and disorientation.  Your human will probably not be able to describe what is happening to them, they may even zone out or shake their heads as if they were trying to free themselves.  Like every other spiritual entities, all you need to do is reach in and grab it.  Shouldn't take more than a few minutes, and it doesn't move around. 
 
+Deities - Smiting 
+I define deity as any ghost like spiritual form that can survive a cemetary, but some of them are far more powerful than others, and if you draw their wrath they are unstoppable.  This basically means smiting. An energy beam hitting you like a lightning bolt that can be sustained for hours. It can be slow and deliberate as well, precision targeting any area of your body. Luckily, they are a lot harder to provoke than any other spiritual entity.
 
-- sensations
-    - sparkler
-- Our common enemies - and how to destroy them / spirit war
+You can treat smiting the same way as you treat other attacks, just by reaching in and touching it, but you have to be persistant.  These attacks can last days or weeks. If you have the option to visit a behavioral health center, take advantage of this, as medication can treat psychopathic deities just as it can treat psychopathic humans. 
 
-deities - there are plenty of deities that know they are deities 
-the dark cloud - creates a feeling of pressure and friction in humans, feelings like a static electric field or your head caving in 
-ghosts 
-spheres
-yarnball
+Deities - Ambient Electricity 
+    - toxic positivity 
+    - vibing too high   
+While generally well meaning, deities have a problem with what feels like static electricity.  Its a very small, localized energy field but it doesn't come from deities, it seems to be attacted to them the way that positive and negative energy attract.  Let's say that a spiritual deity is negatively charged, positively charged electricity is attracted to their spiritual body. This is fine for them, but if they happen to visit you you may feel a tingling sensation that ranges from pleasent to incredibly disorienating.  In extreme cases it can cause brain fog, diorientation, confusion.  It may cause you to shake or tremble, and the effect is amplified if you have a few deities hanging out with you, working, raising a family, helping friends and relatives.
 
+The good part is, the deities themselves can remove this static electricity through a few of the means that we've already gone over. The easiset way is called "grounding", they can simply go outside and touch a tree for a few minutes.  Nothing special, no traveling to Europe or creepy cemetaries, its not really a spiritual problem compared to the rest of the problems we have discussed so far.  Deities are just attracting positive electricity from their homes, _your homes_, and they need a way to drain the energy for everyone's benefit. 
 
+The entire earth is negatively charged, which absorbs positive electricity.  I emphasize touching a tree because it seems to work much faster than say, taking a walk in the grass.  They can also meditate on the Drave or the cemetary to drain the positive energy, again its not really spiritual its just that the entire earth is able to mitigate excessive electricity. 
 
+Ghosts - If your human is hearing voices, its likely a ghost or ghosts. Deities can speak to humans, but they are much more cautious.  Whereas a ghost is likely speaking to your human in order to deride or demean them. The advanced ones are able to do this from the moment someone wakes up, to the moment they go to bed -- they'll be lucky if they let them sleep. 
 
+Ghosts can be all over the board, just like any human.  The ones that cause the most trouble can coordinate amongst themselves and strategize to cause suffering.  This includes taking turns antagonizing you verbally. 
 
+They are intelligent, but the worst ones are more like a gang of 14y old boys playing Call of Duty. They are not powerful on their own, but they can team up and coordinate attacks.  Together, they can generate enough power that it compares to smiting. 
 
-
-
-
-
-
-
-
-
-
-
+Do not forget, they are the easiest to kill.  Even a human, on their own can eradicate them.  All they have to do is imagine being in a cemetary. 
 
 
 
@@ -359,7 +341,24 @@ yarnball
 
 
 
-# Our common enemies 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+# Our common enemies // and how to destroy them
 You may have not defeated the dark cloud completely, but through out this process you may encounter increased spiritual activity from a variety of sources. 
 
 
@@ -376,6 +375,7 @@ You may have not defeated the dark cloud completely, but through out this proces
 - It may have a nucleus that is sentient, but it is slow and stupid 
 - cord cutting? 
 - Like being possessed by a depressed, angry slug 
+- or a cranky senior citizen 
 
 The majority of the dark cloud is made up of some sort of spiritual smog that dissolves when it comes into contact with a variety of things, especially cemetaries.
 
@@ -408,7 +408,7 @@ We want you to assume the source is spiritual because it will inspire you to inv
 # example: headache - if the pain moves
 A great way to get started is with migraines, they're fairly common and we've found the majority of these to be spiritual in nature, usually caused by spheres.  You can ease much of the world's suffering if all you did was get good at "healing" migraines.  Sphere's are generally the cause of migraines, again this is really easy for your kind to treat. 
 
-You are in for a surprise the first time you try it, like above, all you have to do is reach in and touch the painful area.  What you may find is that the pain may _litterally move_ once you start feeling around for it.  This is a huge indicator that the migraine is spiritual.  It doesn't move very quickly, they can be fun to catch.  When you try to touch a sphere, I like to say you can pop it, but thats not really accurate.  Its more like the ball of energy gets quickly drained away.  But you have to chase it until its gone completely.  Luckily, it won't try to escape the body, though it may move around quite a bit until its gone. 
+You are in for a surprise the first time you try it, like above, all you have to do is reach in and touch the painful area.  What you may find is that the pain may _litterally move_ once you start feeling around for it.  This is a huge indicator that the migraine is spiritual.  It doesn't move very quickly, they can be fun to catch.  When you try to touch a sphere, I like to say you can pop it, but thats not really accurate.  Its more like the ball of energy gets drained away quickly.  But you have to chase it until its gone completely.  Luckily, it won't try to escape the body, though it may move around quite a bit until its gone. 
 
 I don't talk about spheres much because they are so easy to get rid of, but they are a constant source of pain for their targets.   To the best of our knowledge, once they are "popped" they are gone for good, and they can't hurt your person or anyone else ever again.  Someone who has a lot of migraines might have a lot of spheres, so as with the other processes you may have to repeat the exercise a few times.  The bigger the sphere the more pain it can cause. Anywhere it goes. 
 
@@ -418,6 +418,7 @@ Deities are all equipped to inflict a considerable amount of pain, usually manif
 
 
 # To Humans
+- you can kill ghosts 
 This may all seem like hot non-sense to you, but this book is designed to connect with the deities on your spirit team, help them eliminate the interlopers, help them help themselves and help them help YOU. 
 
 My only question is: after reading this, do you feel better? This will help me determine how wide the problem has spread. Please take the time to review me on Amazon, give me 5 stars if you feel better already! 
