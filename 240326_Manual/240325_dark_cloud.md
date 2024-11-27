@@ -161,3 +161,25 @@ Let it surround and absorb you, let it smother you then fall back to the Drave. 
 Once we can remove the dark cloud, and you are _sure_ its gone, then take the time to feel your feels.  
 
 Assuming that you got this far, the dark cloud is "naked", it is only comprised of its nucleus and its tentacle. 
+
+# Our common enemies // and how to destroy them
+You may have not defeated the dark cloud completely, but through out this process you may encounter increased spiritual activity from a variety of sources. 
+
+
+- Time for war: Dark Clouds, Ghosts, spheres and yarnballs
+- 240902_dark_cloud.md
+- Dark clouds are gigantic, litterally the size of clouds 
+- There are many dark clouds, somehow separate from each other but overlapping 
+- could be considered "spiritual smog"
+- it is slow moving 
+- It is contagious and spreads to the people in your surroundings 
+- It mostly just surrounds you and tries to trap you in a spleepy brain fog 
+- could be responsible for depression, can "catch" depression 
+- It may have a nucleus that is sentient, but it is slow and stupid 
+- cord cutting? 
+- Like being possessed by a depressed, angry slug 
+- or a cranky senior citizen 
+
+The majority of the dark cloud is made up of some sort of spiritual smog that dissolves when it comes into contact with a variety of things, especially cemetaries.
+
+The first goal is to secure your home by draining the dark cloud and eliminating any spiritual interferance. 

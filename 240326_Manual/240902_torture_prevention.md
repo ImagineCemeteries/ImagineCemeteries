@@ -84,3 +84,5 @@ Spiritual attacks are meant to beat people down and keep them there.
 - we need to empower and enable 
 
 Pain mgmt, tingling, pharmacies
+
+- humans want to be happy, there is something wrong that they can't describe.  I'm telling you whats wrong and how to fix it.  The proof may be counted in smiles.  In our experience, doing this for people just puts a smile on their faces. 

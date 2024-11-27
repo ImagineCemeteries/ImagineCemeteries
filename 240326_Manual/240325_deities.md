@@ -58,3 +58,6 @@ Deities - The majority of deities are highly intelligent, very reasonable and op
 
     - toxic positivity 
     - vibing too high  
+
+        - deities vs superbeings
+    - superbeings can go where ever they want 

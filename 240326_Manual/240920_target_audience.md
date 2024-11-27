@@ -13,3 +13,6 @@
 - Scientolgists 
 - Tiff's team
 - cyber security
+- christians 
+- hindu 
+- catholics

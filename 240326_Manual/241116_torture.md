@@ -21,3 +21,6 @@ Lets say these forces do answer to higher powers.
 Torture is a strong word, using pain to manipulate and deter is popular. Punishment 
 
 For some reason, the majority of these attacks are done in a way to make spiritual (and otherwise) onlookers believe that the source is medical in nature. They are hiding spiritual attacks in the form of common "illnesses."  Maybe even accentuating exsisting illnesses to make pain and discomfort unbearably extreme. 
+
+
+# "they" are hiding attacks in medical ailments
