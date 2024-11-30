@@ -23,6 +23,7 @@ In this guide, I will teach you
 # Round 1: The Drave & the Dark Cloud 
 # Shock / Whiplash
 # Now What? Meditation
+- we need our frenimies 
 # Ghosts vs Deities: know what you are
 # Cemetaries and the Dark Cloud
 # Team Building
@@ -87,7 +88,7 @@ Legrad, Croatia
 
 
 # Shock / Whiplash 
-We're proposing that spirits, ghosts, deities, demons, whatever you identify as, can be possessed the same way that humans can be.  And the dark cloud seems to be pulling the strings.  It has a spiritual field that sticks to you, catching you in its web; the trip to the Drave washes that spiritual field off your spiritual body and allows you to think clearer than you were otherwise able to. 
+We're proposing that angels, spirits, ghosts, deities, demons, whatever you identify as, can be possessed the same way that humans can be.  And the dark cloud seems to be pulling the strings.  It has a spiritual field that sticks to you, catching you in its web; the trip to the Drave washes that spiritual field off your spiritual body and allows you to think clearer than you were otherwise able to. 
 
 This movement wasn't started, wasn't fought by saints.  We were just a bunch of people tangled up in this dark cloud, fighting each other over petty differences.  Then we realized there was something bigger than all of us, a common enemy, sabotaging us in everyway possible. Our relationships with each other, our goals, our mood.
 
@@ -97,6 +98,7 @@ Once you get past the shock, you'll notice that you are stronger, faster, more p
 
 
 # Now What? Meditation
+- we need our frenimies 
 We hope you feel better already but if you don't, don't worry, we're not done yet.  Buckle up! 
 
 By going to the Drave, you have litterally taken a chunk out of the dark cloud and eliminated it.  The dark cloud is a sentient spiritual species and its contagious, in other words it will want to catch you again, even though it is weaker now that you've cleansed your energy.  
@@ -124,7 +126,7 @@ So how do you _really_ know what you are? Put simply: deities are self-reliant, 
     - the good the bad the ugly, the christians the wiccans the hindu, the scientologies
 We are really counting on the superbeings that can travel to the Drave in person, but we can't guarentee they will help us.  This next step is for all spiritual entities who can't visit the Drave, you have another option to eliminate the dark cloud. Just like taking a dip in the Drave, going to the cemetary cleanses the dark cloud's sticky spiritual energy off your spiritual body allowing for clearer thoughts and more focus. 
 
-The thing about the Drava river is that it is almost instantaneous, as soon as you see it this cloud of nasty energy just drains off of you -- visiting the cemetary doesn't work as fast.  But if you spend a whole hour in the cemetary you should come out feeling better than you've felt in years, like a weight lifted off your shoulders. 
+The thing about the Drava river is that it is almost instantaneous, as soon as you see it this cloud of nasty energy just drains off of you -- visiting the cemetary doesn't work as fast.  But if you spend a whole hour in the cemetary you should come out feeling better than you've felt in years, like a weight lifted off your shoulders. Just TRY IT. 
 
 Go to the last cemetary you remember, put your hands on a tree in the cemetary.  The tree is IMPORTANT because it accelerates the process. Just being in a cemetary doesn't cut it.  Then you need to stay there for at least 20 mintutes, but an hour if you can.  We recommend repeating this process daily, having "a shower" will clear your mind, sharpen your focus and prepare you for the daily battles ahead.  
 
@@ -140,7 +142,7 @@ All religions are seeking the path to God, regardless of your religion we all sh
 
 
 # Team Building 
-The cemetary exercise is time-consuming, but it is also going to be the most common option for deities that can not visit the Drave.  For both the Drave and the cemetary excercises, you can magnify the effects and expidite the results if you create teams and, force multiply and meditate in unison. Teach this to as many people as possible and form TEAMS. BIG ONES. Its easy once you get started.
+The cemetary exercise is time-consuming, but it is also going to be the most common option for deities that can not visit the Drave.  For both the Drave and the cemetary excercises, you can magnify the effects and expidite the results if you create teams, force multiply and meditate in unison. Teach this to as many people as possible and form TEAMS. BIG ONES. Its easy once you get started.
 
 For all parties, its good enough if you just want to meditate on the Drave or the cemetary, but if you want to go pro then start by visiting the Drave or the cemetary, go back home and meditate on the Drave or the cemetary, and when you think you're done or just tuckered out, go back to the Drave or the cemetary again. Making in-person visits help with the fatigue that meditating for extended periods can cause. 
 
@@ -167,6 +169,8 @@ Ghosts are aweful and they're everywhere, I can't speak for every ghost out ther
 Aside from the worst case scenarios, ghosts form a sort of shadow society.  They want to own your human. There are enough of them that have so much control over their human hosts that they litterally live for them, whether the host likes it or not. I'm talking about posssession, possesion so subtle that it could seem like a form of cohabitation.  Their activities are indecernable from other human activities.  The modern ghost isn't going to sit around and haunt your house, they are going to bounce between your human and their other hosts while they work, raise their family, spend time with their friends, and even join them during your religious practices. They hear through your humans, see through your humans and speak through your humans. 
 
 This may sound similar to how yourself, a deity, behaves, but deities aren't generally so possessive.  You step in to help at times and move around quite a bit.  As opposed to _owning_ a person, family or business, your kind ushers human beings through life and its challenges.  Deities are very helpful, many deities are at the wrong end of a choke chain by ghosts -- _and can't even tell A GHOST is holding the leash._  Ghosts are arrogant, lazy and intimidating and they cause mayhem when they don't get what they want.  They cause mayhem even when they are getting what they want. All you have to do is nothing and they will antagnoize you for life.  They have taken the karma concept to new levels, they think they are invincible and tend to harrass others into serving them.
+
+Think of a massively multiplayer online game where the players compete for human resources and retaliate if they can not control a host. 
 
 
 # Round 2: Ghosts
@@ -355,6 +359,7 @@ Homeless people are severly afflicted by extreme spiritual forces, such as the d
 
 
 # Advanced 
+- holidays / family gatherings 
 - Field test guide / homeless people
     - uplift them, practice
 - the good feeling 
