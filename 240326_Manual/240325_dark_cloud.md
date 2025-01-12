@@ -1,3 +1,6 @@
+# may remove
+I wrote this book to eliminate the dark cloud as quickly as possible, before it can realize what is happening. You may have noticed that initially I didn't give you much context on why you should visit the Drave or what the dark cloud is.  I didn't want it to understand that we were going to destroy it, I just wanted you to get to the Drave or the cemetary as quickly as possible.  It can also see through your human and hear through your human, but initially, its too slow to realize we're talking about it, and otherwise its too arrogant to believe we can annihilate it.  
+
 - dark cloud symptoms 
 - ice bath 
 - the dark cloud will try to consume deities, go back and foward between the Drave or a cemetary to slowly drain the dark cloud's energy

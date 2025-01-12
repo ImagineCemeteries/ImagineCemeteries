@@ -61,3 +61,5 @@ Deities - The majority of deities are highly intelligent, very reasonable and op
 
         - deities vs superbeings
     - superbeings can go where ever they want 
+
+Immunity - Ganesh

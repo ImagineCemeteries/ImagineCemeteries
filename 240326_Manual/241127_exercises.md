@@ -18,3 +18,17 @@
 # To Humans
  - imagine cemetaries 
  - you can kill ghosts 
+
+
+ - how to choose a second location 
+ When choosing a second location, consider the size of your team.  
+ homes - easy 
+ jobs - hard 
+ family - easy 
+ friends - easy 
+ stores - hard 
+ work from home - hard 
+ airports
+ hotels
+
+ Build a big enough team to clear a store like the grocery store, then teach it to the deities that are left. 

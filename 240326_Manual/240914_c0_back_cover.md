@@ -17,4 +17,9 @@ A dark cloud is not only hanging over your head, it is a sentient spiritual spec
 
 We need you to fight with us.
 
-Your spirit team can fight with you, we need them to fight with us too.  We need them to take the first step, if they do anything, visit the Drava river in Austria, swim in its waters. The next steps are in the pages of this book. 
+Your spirit team can fight with you, we need them to fight with us too.  We need them to take the first step, if they do anything, visit the Drava river in Europe, swim in its waters. The next steps are in the pages of this book. 
+
+- non-denominational on back cover
+- look at other books on this topic
+- This book is completely different from other spiritual books  
+- inspiring tale of your own story 
