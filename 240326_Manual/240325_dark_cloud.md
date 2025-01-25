@@ -2,13 +2,14 @@
 I wrote this book to eliminate the dark cloud as quickly as possible, before it can realize what is happening. You may have noticed that initially I didn't give you much context on why you should visit the Drave or what the dark cloud is.  I didn't want it to understand that we were going to destroy it, I just wanted you to get to the Drave or the cemetary as quickly as possible.  It can also see through your human and hear through your human, but initially, its too slow to realize we're talking about it, and otherwise its too arrogant to believe we can annihilate it.  
 
 - dark cloud symptoms 
+- pressure in the head
 - ice bath 
 - the dark cloud will try to consume deities, go back and foward between the Drave or a cemetary to slowly drain the dark cloud's energy
 
 # 241023
 Like being possessed by a depressed, angry slug 
 
-# 5/16
+# 5/16/24
 My prior company was invaded by a spiritual cybersec gang that carried a spiritual disease. Myself, my human colleagues and my spiritual colleagues where infected to various degrees. We call this the dark cloud. 
 
 The dark cloud has some sentient abilities and is able to manipulate both human & spiritual hosts.  A small set of deities are immune to this disease, notably Ganesh.  The God of Grounding. 
@@ -186,3 +187,16 @@ You may have not defeated the dark cloud completely, but through out this proces
 The majority of the dark cloud is made up of some sort of spiritual smog that dissolves when it comes into contact with a variety of things, especially cemetaries.
 
 The first goal is to secure your home by draining the dark cloud and eliminating any spiritual interferance. 
+
+# Deities Falling out of the Dark Cloud 250119
+Another major problem with the dark cloud -- it doesn't only influence deities, it can consume and absorb them.  The deities I worked on this project with were all too powerful to be fully absorbed by the dark cloud, though they did have to live with it for lord knows how long. 
+
+Our first method of fighting the dark cloud was in person, I litterally went to the cemetary every day for an hour while we practiced our meditative abilities.  What we found was that, during meditation and in person, other deities would "fall out" of the dark cloud.  Deities that didn't seem to know why they were there, how they got there or what happened.  Deities that were consumed by the dark cloud maybe hundreds of years ago. 
+
+Since we've started this, I have basically ignored them.  My heart wanted to believe that the deities on my team would know what to do about them, but I was playing with powerful forces and I was afraid of getting in trouble. With someone.  Espeically when I was making in person trips to the cemetary, we all had the impression that these deities were coming from the cemetary I was visiting.  Since then, as of today, we've decided that they didn't come from that cemetary or any cemetary, but as we drained the dark cloud, thats where they landed. 
+
+We didn't know what to do with them at first, but my home and my experiences were horrifying.  We told them that they could go anywhere and be better off.  And then there was an effort to "rehome" them.  I vaugely remember trying to explain cars to them one day.  
+
+The dark cloud restricts deities from being able to pop between humans easily. The friction, force, or smog it creates, is challenging to travel through.  Humans with the dark cloud are especially difficult to possess, for a lack of better word.  Like the feeling of putting on clothes that are too small for you. Ghosts don't seem to share this problem. Also some deities are immune, notably Ganesh.
+
+You only need to spend a few minutes meditating on the river, this won't remove the dark cloud completely but it will get the ball rolling and prepare you for the next steps.  

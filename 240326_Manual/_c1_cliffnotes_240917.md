@@ -1,3 +1,6 @@
+# Location - C:\Users\tabat\OneDrive\Documents\GitHub\ImagineCemeteries
+- check your other documents folders 
+
 # what does this book aim to accomplish 
 Try to eliminate pain and suffering. We've found ways to drastically reduce pain and suffering, for huamns and deities, and we want to share them with the world. 
 
@@ -21,12 +24,12 @@ X about our common enemies and how to destroy them / spirit war
 X about your kind and other kinds 
 X how to protect your humans
 Human vs person 
+Need a "cue" for meditation
 
-# Introduction
+# Introduction - To humans and otherwise 
 # The Dark Cloud - everything I touch gets destroyed 
 # Ghost Gangs 
-# Short List / Cliffnotes
-# To humans and otherwise 
+# Cliffnotes
 # Round 1: The Drave & the Dark Cloud 
 # Shock / Whiplash
 # Now What? Meditation
@@ -67,8 +70,13 @@ Human vs person
 - field guide for the damned 
 - Modern Manual for Spiritual Warfare
 
-# Introduction
-For me, this war started in March of 2020 right before covid hit the US. For 3 years, up until August 8th 2023, ghosts were my only enemy.  August 2023 I discovered how to kill ghosts, but the project caused so much commotion I was running into different spiritual forms constantly.  One of those spiritual problems is the dark cloud.  I have only spent a little over a year fighting the dark cloud, but I consider it our very worst enemy.  The problem with the dark cloud is that it can possess other spiritual entities, ghosts and deities included. The dark cloud creates feelings of depression, lethargy, irritability, social friction, in all spiritual beings, including humans, as we have a spiritual soul. These symptoms incite violence amongst spiritual beings and friction amongst humans, which is why I consider it the biggest threat. 
+# Introduction - To Humans and Otherwise
+- calling out ghosts right off the bat
+For me, this war started in March of 2020 right before covid hit the US. For 3 years, up until August 8th 2023, ghosts were my only enemy.  August 2023 I discovered how to kill ghosts, but the project caused so much commotion I was running into different spiritual forces constantly.  One of those spiritual forces is the dark cloud.  I have only spent a little over a year fighting the dark cloud, but I consider it our very worst enemy.  The problem with the dark cloud is that it can possess other spiritual entities, ghosts and deities included. The dark cloud creates feelings of depression, lethargy, irritability, social friction, in all spiritual beings, including humans, as we have a spiritual soul. These symptoms incite violence amongst spiritual beings and friction amongst humans, which is why I consider it the biggest threat. 
+
+- maybe something about contageous 
+
+This ENTIRE book is instructions for your spirit team, written in an order to eliminate problems the most efficiently.  You don't have to do anything but read it to them.  This book is designed to connect with the deities on your spirit team, help them eliminate the interlopers, help them help themselves and help them help YOU.  If you are feeling troubled read on for relief. 
 
 # The Dark Cloud 
 The dark cloud is a sentient spiritual species, we call it the "dark cloud" because most people are familiar with the analogy of "a dark cloud hanging over your head".The dark cloud can entrap and possess spiritual lifeforms as well as humans.  This includes deities and ghosts.  The dark cloud creates friction and drives wedges between you, your goals, your family, your friends, your colleages, your neighbors and your spiritual alies. It also drives wedges between your spiritual alies, their friends, thier colleages, their neighbors and their spiritual alies.  The dark cloud is GIGANTIC, some can be as big as a litteral cloud -- a massive spiritual field that infects anything within its grasp.  It is also responsible for symptoms of fatigue, lethargy, irritability, and depression. 
@@ -77,18 +85,23 @@ The dark cloud has the personality of a cranky senior citizen, or even an angry 
 
 In the beginning, destroying a dark cloud took weeks and months, and we were fighting several at the same time. Through our methods, we've been able to eradicate them in a couple hours. There are as many of them as any other spiritual species, they target humans but can catch anything in their spiritual field. Many aflicted humans can be caught in field of multiple dark clouds, each intertwined and layered on top of each other.  This makes humans and deities alike feel like they are consumed by something they can't escape, when they move, the dark cloud's spiritual smog moves with them and their every waking moment is lived through the veil of the dark cloud. 
 
-The dark cloud gives humans, ghosts, deities the feeling of needing to fight something they can't see. Because they can't see it, they fight everyone around them.  These individuals have an instinctual knowing there is something very wrong, but they don't know where its coming from. The dark cloud is such an huge threat because it engulfs anything in its path, notably deities.  When deities come into contact with this life-form, they become irritable and in some cases irtate.  There is nothing good about a grouchy deity.   We need happy deities.  We can let this keep happening to them. 
+The dark cloud gives humans, ghosts, and deities the feeling of needing to fight something they can't see. Because they can't see it, they fight everyone around them.  These individuals have an instinctual knowing there is something very wrong, but they don't know where its coming from. The dark cloud is such an huge threat because it engulfs anything in its path, notably deities.  When deities come into contact with this life-form, they become irritable and in some cases irtate.  There is nothing good about a grouchy deity.   We need happy deities.  We can't let this keep happening to you and your kin. 
 
 From what I can tell about people and deities alike, your strategy for troubled people is to avoid them. This book is directed at the deities that shepard troubled people, deities that know of a few troubled people but don't know how to help them, or even deities that are troubled themselves. If we don't fight the dark cloud, it will keep spreading.  Especially if deities tend to avoid the problem. 
  
-This book tackles spiritual problems head on.  We can't fix everything, even if it were just humans and deities and nothing else, no ghosts, no other things, people will still have problems or be problematic.  Some deities will still have problems or be problematic.  But the benefits are so incredible that where some of these shepards of troubled people have devote all of their time to cleaning up messes, they can take the information in this guide and eliminate 90% of their problems.  
+This book tackles spiritual problems head on.  We can't fix everything, even if it were just humans and deities and nothing else, no ghosts, no other things, people will still have problems or be problematic.  Some deities will still have problems or be problematic.  But the benefits of this guide are so incredible that where some of these shepards of troubled people have devote all of their time to cleaning up messes, they can take the information in this guide and eliminate 90% of their problems.  
+
+In humans, the dark cloud creates feelings of depression, lethargy, irritability, social friction, anger, and aggression.
 
 # Ghost Gangs
 Relative world peace has brought on a new problem.  In the past aggressors didn't get along well, steps forward in comunication and team work have created a new super set of spirits that join together in gang-like communities for the purpose of causing pain an misery to their many, many targets.  Often these targeted people are not special in anyway, they are just names on a list.  We are aware of these spiritual gangs practicing their violent methods for training purposes.  
 
 Spiritually troubled people may not be able to bounce back rapidly.  They have experienced things they don't understand and can't risk telling anyone about.  But we can prevent the majority of this from happening to new people. 
 
-# Short list 
+Not all ghosts, but ghosts like these are responsible for feelings of anxiety, schitzophrenia, paranoia in humans and spirtual kind. 
+
+# Cliff Notes
+- compelling
 If all you did was read this chapter, this is what you need to know. This the message that my spirit team wants to give to your spirit team. 
 
     1. If you can travel globally, go swim in the Drava river in Austria
@@ -105,21 +118,15 @@ If all you did was read this chapter, this is what you need to know. This the me
         6. The pharmacy at CVS, Walgreens or Walmart
         7. The Periodic Table of Elements - insert table 
 
-    4. The dark cloud and the ghosts likely cohabitate with you in your home.  When you return home, envision yourself in the cemetary.  Mediate on the cemetary, focus on the tree and imagine the landscape overlaid in your home.  Its holy ground, the only holy ground we know of that is common to everyone.  You are opening a portal to the cemetary just by thinking about it.
+    5. The dark cloud and the ghosts likely cohabitate with you in your home.  If you were able to visit the Drave then meditate on its waters, imagine the river flowing through your home.  You will feel a sensation as you are meditating, like a rush or a draining feeling.  Eventually, this will drain the dark cloud from your surroundings, work your way up to 15 minutes and move on to the next step.  
 
-    5. Step 4 is difficult and time-consuming but its worth it. After meditating on the cemetary momentarily, the ghosts will be gone.  You may find that it is quieter, but any beings left are deities.  These are the people you want on your team.  To defeat the dark cloud, you will have to work your way up to meditating on the cemetary from minutes, to hours. This is much easier if you can build a team to meditate together. 
+    4. To eliminate the ghosts, envision yourself in the cemetary.  Focus on the tree and imagine the landscape overlaid in your home.  Its holy ground, the only holy ground we know of that is common to everyone.  You are opening a portal to the cemetary just by thinking about it.  The effect on ghosts should be instantaneous, try it for 15 minutes. 
+    
+    6. If you weren't able to visit the Drave, you can still meditate on the cemetary to destory the dark cloud.  After meditating on the cemetary momentarily, the ghosts will be gone.  You may find that it is quieter, and any beings left are deities.  These are the people you want on your team.  To defeat the dark cloud, you will have to work together and train together, working your way up to meditating on the cemetary from minutes, to hours. This is much easier if you can build a team to meditate together.  Pace yourself and take breaks. 
 
-    6. In addition to the dark cloud and ghosts, we've ran into what we call "Spheres" -- small balls of painful energy between the size of a marble and a golf ball.  To our knowledge these are sentient life forms, they tend to hang out in your human's head and cause headaches.  The good news is all you have to do is touch them, and they "pop". Reach into your human's head and try to grab them, they will move around suddenly, and even travel into your human's body.  This makes them fun to "catch", and it only takes a few minutes before they are gone for good.  
+    7. In addition to the dark cloud and ghosts, we've ran into what we call "Spheres" -- small balls of painful energy between the size of a marble and a golf ball.  To our knowledge these are sentient life forms, they tend to hang out in your human's head and cause headaches.  The good news is all you have to do is touch them, and they "pop". Reach into your human's head and try to grab them, they will move around suddenly, and even travel into your human's body.  This makes them fun to "catch", and it only takes a few minutes before they are gone for good.  
 
-    6. Thats it! A bunch of ghosts cheated judgement, the dark cloud came from who knows where, these sphere type beings are painful and irritating, and the deities are all starving for nourishment. Take care of yourself, pop the spheres and meditate on the Drave where posible, cemetaries otherwise. 
-
-# To Humans and Otherwise
-This ENTIRE book is instructions for your spirit team, written in an order to eliminate problems the most efficiently.  You don't have to do anything but read it to them.  This book is designed to connect with the deities on your spirit team, help them eliminate the interlopers, help them help themselves and help them help YOU.  If you are feeling troubled read on for relief.  
-
-As for spiritual folk, I realize that not all of you can travel to far off places, the next section on the Drava River is dedicated to those who can. Where they go, the dark cloud follows, and I'm sending them to a beautiful river that absorbs dark clouds. So they may take YOUR troubles with them to Europe, and leave them there. 
-
-This will help you peripherally and the rest of this manual is useful to all of your kind. 
-
+    8. Thats it! A bunch of ghosts cheated judgement, the dark cloud came from who knows where, these sphere type beings are painful and irritating, and the deities are all starving for nourishment. Take care of yourself, pop the spheres and meditate on the Drave where posible, cemetaries otherwise. 
 
 # Round 1: The Drave & the Dark Cloud
 A dark cloud is not only hanging over your head, it is a sentient spiritual species. We gotta get rid of it and get you guys and gals feeling better.
@@ -140,6 +147,10 @@ Ormož, Slovenia
 Varaždin, Croatia
 Legrad, Croatia
 
+I realize that not all of spiritual kind can travel to far off places, this section on the Drava River is dedicated to those who can. Where they go, the dark cloud follows, and I'm sending them to a beautiful river that absorbs dark clouds. So they may take YOUR troubles with them to Europe, and leave them there. 
+
+This will help you peripherally and the rest of this manual is useful to all of your kind.
+
 # Shock / Whiplash 
 We're proposing that angels, spirits, ghosts, deities, demons, whatever you identify as, can be possessed the same way that humans can be.  And the dark cloud seems to be pulling the strings.  It has a spiritual field that sticks to you, catching you in its web; the trip to the Drave washes that spiritual field off your spiritual body and allows you to think clearer than you were otherwise able to. 
 
@@ -159,9 +170,13 @@ The dark cloud inhabits your surroundings the same way you and your humans inhab
 
 Here's the cool part.  If your regular terf, domicile, etc is still dripping in bad vibes,  in the same way you brought the dark cloud to the Drave, you can bring the Drave to the dark cloud. You can simply envision the river to start removing the dark cloud from your surroundings.  You've been to the Drave. In your home, where you sit, imagine that you are surrounded by the river. You are submerged in it, you look up and see the reflections of trees and colorful buildings on the surface of the water. 
 
-You only need to spend a few minutes meditating on the river, this won't remove the dark cloud completely but it will get the ball rolling and prepare you for the next steps.  The dark cloud affects us all, and areas of high pressure move to areas of low pressure; so at first you will meditate and clear your surroundings, but other dark clouds will move in to fill the gap. You can't "cure" the dark cloud in a day, but you can have TREMENDOUS RELEIF. 
+The dark cloud affects us all, and areas of high pressure move to areas of low pressure; so at first you will meditate and clear your surroundings, but other dark clouds will move in to fill the gap. You can't "cure" the dark cloud in a day, but you can have TREMENDOUS RELEIF. 
 
 The Drave meditation will be a valuable tool to wipe out the dark cloud's energy field, now you just need to scale your mental imagery to be the size of a cloud.  Also think up!  The dark cloud lives in the air, not exactly in the sky but say right above the tree line.  You can do a lot of damage just meditating at ground level, but you can do a lot more by turning your attention skyward.
+
+By the time we discovered this, we already had a fairly large team.  Our strategy is meditating in unison, together simultaneously.  It is difficult to estimate how quickly this will go if you are by yourself.  If you're not feeling a difference when you meditate at home, your best option is to invite other deities to swim with you in the Drava river.  Not only will cleanse their energy, but it should snap them out of any mental funk they are in. 
+
+If they frequent the same envrionments you do, then they may be living and breathing in the dark cloud's spiritual smog. This spiritual energy is "sticky", it sticks to deities.  Convincing them to swim in the Drave with you will also drain more of the dark cloud's spiritual smog.  If they feel the relief that comes with swimming in the river, then you can team up together to meditate at your homes.  You need to focus on one home at a time, the first one could take a month.
 
 We would like everyone on all sides to join us & help get rid of the dark clouds.  If you start to feel that darkness creeping back in, you can meditate on the Drave to start destroying it.  The dark cloud is ENOURMOUS -- litterally the size of a cloud,  meditation can be exhausting. It will keep coming for a time, as other dark clouds move in to fill the gap.   We have to work a little harder to get rid of them, but there are only a couple more steps.  For now, lets take a step back and go over a few other things. 
 
@@ -221,7 +236,7 @@ This may sound similar to how yourself, a deity, behaves, but deities aren't gen
 
 
 # Round 2: Ghosts
-We've been misled, ghosts don't come _from_ cemetaries, they are supposed to go _to_ cemetaries. Cemetaries themselves are spiritual deadzones, the only beings that can survive them are living creatures or deities. That creepy, surreal silence that spooks you when you've been through a cemetary?  It is just the absense of most forms of spiritual life, in world overpopulated by spiritual activity.  Though some deities do like to have some fun with us if we wander through; typically deities on your own spirit team. 
+We've been misled, ghosts don't come _from_ cemetaries, they are supposed to go _to_ cemetaries. Cemetaries themselves are spiritual deadzones, the only beings that can survive them are living creatures or deities. That creepy, surreal silence that spooks you when you've been through a cemetary?  It is just the absense of most forms of spiritual life, in world overpopulated by spiritual activity.  Though some deities do like to have some fun with us if we wander through; typically deities on our own spirit teams. 
 
 Okay, now for the fun stuff. _How_ do we get rid of ghosts? 
 
@@ -365,7 +380,7 @@ A great way to get started with torture prevention is with migraines, they're fa
 
 You are in for a surprise the first time you try it, like above, all you have to do is reach in and touch the painful area.  What you may find is that the pain may _litterally move_ once you start feeling around for it.  This is a huge indicator that the migraine is spiritual.  Spheres don't move very quickly, and they can be fun to catch.  When you try to touch a sphere, I like to say you can pop it, but thats not really accurate.  Its more like the ball of energy gets dissolved, but you have to chase it until its gone completely.  Luckily, it won't try to escape the body, though it may move around quite a bit until its gone. 
 
-I don't talk about spheres much because they are so easy to get rid of, but they are a constant source of pain for their targets.   To the best of our knowledge, once they are "popped" they are gone for good, and they can't hurt your person or anyone else ever again.  Someone who has a lot of migraines might have a lot of spheres, so as with the other processes you may have to repeat the exercise a few times.  The bigger the sphere the more pain it can cause. Anywhere it goes. 
+Spheres are a constant source of pain for their targets.   To the best of our knowledge, once they are "popped" they are gone for good, and they can't hurt your person or anyone else ever again.  Someone who has a lot of migraines might have a lot of spheres, so as with the other processes you may have to repeat the exercise a few times.  The bigger the sphere the more pain it can cause. Anywhere it goes. 
 
 Of course, you can get started with pain in any area of the body and we encourage you to do so.  
 
@@ -373,7 +388,7 @@ Of course, you can get started with pain in any area of the body and we encourag
 # Insomnia and Sleep Deprivation 
 Ghosts and deities can cause insomnia or sleep deprivation.  This can be as bad as total sleep deprivation, several attacks in the middle of the night, or occasionally waking up at any hour and struggling to go back to bed.  Of course, some of this is natural, so those that only wake up occasionally are less likely to be afflicted.  
 
-We don't have a solution for this aside from eradicating ghosts to lessen the problem.  Its frankly embarassing that deities partake in this tactic, but it is true. If you have been struggling to sleep, meditating on the cemetary should lessen the problem, by eliminating ghosts. But if a deity is waking you in the night we don't have a solution, aside from praying.  Asking them nicely to stop.  
+We don't have a solution for this aside from eradicating ghosts to lessen the problem. Its frankly embarassing that deities partake in this tactic, but it is true. If you have been struggling to sleep, meditating on the cemetary when you awaken should lessen the problem, by eliminating ghosts. But if a deity is waking you in the night we don't have a solution, aside from praying.  Asking them nicely to stop.  
 
 In rare cases, you can reason with them.  Some deities attempt to wake you up early for productivity, regardless of when you went to bed the prior night.  You may be able to explain your lifestyle, including the time you need to be in at work and the time you get off.  You may be able to explain that you have roommates and you can't acheive anything in the morning without waking someone or being disruptive. 
 
@@ -405,7 +420,7 @@ I have an enourmous amount of faith in the dedication and determination of deiti
 # Find Backup  
 We wrote this book to _wake you up_ and clear one zone as quickly as possible, so that you have a peaceful place to recover, think and strategize.   If you're not able to clear the dark cloud from your home by yourself or with the team you have created, you may have to really go out of your way to build a team.  You're looking for deities that can strategize, coordinate and execute together; for many of you the only network you have access to would be veterans -- even if you're not a veteran.  Other options are police officers or firefighters, you probably already know at least one of these. All of these groups have extensive spiritual social networks they could mobilize against the dark cloud, and would have incentive to contribute.  
 
-These brave men and women put themselves in the way of conflict and some are "haunted" by their experiences.  They also have just as many ghosts breathing down their necks as anyone else, some of them may have experienced some of the issues I outlined previously, such as hearing voices, depression, even anxiety.  They also have deities looking over them, so the goal would be to connect with those deities.  The problem of ghosts and the dark cloud is so pervasive that everyone has them to some extent, just like the tagled web example we went over.
+The humans these groups shepard are brave men and women that put themselves in the way of conflict and some are "haunted" by their experiences.  They also have just as many ghosts breathing down their necks as anyone else, some of them may have experienced some of the issues I outlined previously, such as depression, anxiety, or even hearing voices.  They also have deities looking over them, so the goal would be to connect with those deities.  The problem of ghosts and the dark cloud is so pervasive that everyone has them to some extent, just like the tagled web example we went over.
 
 I'm sure most of you know a veteran, officer, or a firefighter, you may not be able to clear the dark cloud on your own, but you can use any of the steps in this guide in any order.  Find a human veteran, firefighter or police officer and try to connect with their deities.  The hardest part will be telling the deities from the ghosts, but all you have to do is meditate on the cemetary in their presence to eliminate the ghosts.  With any luck, these ghosts were jackasses and the remaining deities will be relieved and interested in what else you've got.
 
@@ -429,7 +444,7 @@ It is important to note that the homeless person's dark cloud is not singular, a
 Homeless people also have deities supporting them, it is important to connect with these deities and share our methods.  Some deities put most of their focus on homeless people, so even attempting this exercise once and cross-training could have an exponetial effect.  Teach the deities that govern homeless people our methods.
 
 # Defending Your Ingress Points
-You can train the team you have at your primary dwelling to defend against ghosts and the dark cloud while you spread the message to a second location. The most defensible dwellings will be those with the largest amount of deities.  By the time you've cleared the dark cloud and its core from your home, you will have enough practice to begin training others.  Your next goal is to identify the ingress points and keep teambuilding. 
+You can train the team you have at your primary dwelling to defend against ghosts and the dark cloud while you spread the message. By the time you've cleared the dark cloud and its core from your home, you will have enough practice to begin training others.  The most defensible dwellings will be those with the largest amount of deities, this could be a workplace instead of a home.  Your next goal is to identify the ingress points and keep teambuilding. 
 
 An ingress point is any connection you have with communities outside your immediate dwelling. This could be:
 
@@ -449,102 +464,43 @@ What we're really counting on here is that each of the methods in this guide are
 
 Its all the same to us, as long as the message is spreading.
 
-# Spread the Word
+
+
+# Target hotspots / Spread the Word / Call to action
+We want you to be safe, happy and comfortable but we also need your help. Focus on yourself first, where you live, where you work, your favorite places to go. Reap the rewards of our practices and build a team. But then, target hotspots, stop the trickle.  
+
+Join your teammates as they clear their home, their work and their family & freinds.
+
+- be selfish, focus on you first, such as peace and quiet
+- behavioral health facilities
+- schools
+- office jobs 
+- trailer parks 
+- jails 
+- prisons 
+- police buildings 
+- extended family
+- homeless people 
+- homeless shelters 
+- peoples job 
+- cybersec
+- airports 
+- regular bus stops
+- greyhound bus stops 
+- extended family (especially family you don't get along with)
+- people who don't get along 
+- people who are always pressuring you 
+- homeless people  
+- holidays / family gatherings 
+- schools 
+- protests 
+- hotels
+- Shopping centers
 - extended family (especially family you don't get along with)
 - neighbors you don't get along with 
 - colleagues you don't get along with 
-
 - veterans 
 - police officers
 - fire fighters
 - office jobs 
 - airports
-
-
-- regular bus stops
-- greyhound bus stops 
-
- 
-
-
-
-- cybersec
-- leaky faucet 
-- be selfish, focus on you first, reap the rewards of our practices, such as peace and quiet, 
-
-The problem with this chapter is that the title is spread the word, but the only thing I suggest is contact office workers. 
-
-
-
-# Exercises - Keeping a Clear Head 
-Its good enough if you just want to meditate on the Drave or the cemetary, but if you want to go pro then start by visiting the Drave or the cemetary, go to your target location and meditate on the Drave or the cemetary, and when you think you're done or just tuckered out, go back to the Drave or the cemetary again. Making in-person visits help with the fatigue that meditating for extended periods can cause.
-
-# Exercises - Nourish Yourselves
-Visit or meditate on the locations below for mental strength and fortitude: 
-
-    1. Produce section at the grocery store
-    2. Spice section at the grocery store 
-    3. The tea section at the grocery store
-    4. Vitamin Shoppe or GNC
-    5. Biggest crystal store you know 
-    6. The pharmacy at CVS, Walgreens or Walmart
-    7. The Periodic Table of Elements - insert table 
-
-# Exercises - The Drave 
-Visit or meditate on the Drava river
-
-# Exercises - The Cemetary 
-Meditate on a cemetary tree 
-
-# Exercises - Top 5 People
-Think about the top 5 people in your life that drive you crazy.  People who are always wanting something from you, always nagging you, always degrading you.  These people have a high probablility of being possessed by ghosts. Go to them and imagine the cemetary around them. Center the tree over them, in some cases you will see a big smile emerge on their faces. It takes seconds to eradicate ghosts, and the joy that your humans experiece will be very gratifying. 
-
-If you are unable or unwilling to go directly, you can also envision yourself in each of these places for a moderate energy boost. Try imagining yourself in the produce section at a grocery store, walk through the aisles slowly, take in all of the oranges, grapefruit and apples, the cabbage, lettuce, leeks, carrots, black berries and blue berries, just envision yourself absorbing these things.  
- 
-Go over to the spice section, stand in front of it and just take it all in.  If it feels good to you, keep going! Just imagine yourself slowly walking down the aisles of each place above.  
-
-# Round 1: The Drave & the Dark Cloud
-- visit / meditate on the Drave
-# Round 2: Ghosts
-- visit / meditate on the cemetary
-
-# Round 3: The Dark Cloud's Core
-You can meditate on the cemetary to eliminate it; envision a tree in the cemetary covering your human, expand as much as you can and it is very important that you _reach into_ your human's head and grab the tail of the tentacle while you meditate. 
-
-# End Exercises 
-
-# Advanced:  Ingress points
-- your human's job
-- your human's friends
-- your human's school
-- your human's neighbors
-- your human's extended family
-
-# Targeting Hotspots
-- airports 
-- regular bus stops
-- greyhound bus stops 
-- office jobs 
-- extended family (especially family you don't get along with)
-- cybersec
-- leaky faucet 
-- be selfish, focus on you first, reap the rewards of our practices, such as peace and quiet, 
-
-
-
-
-
-
-- bus stops / greyhound 
-- people who don't get along 
-- people who are always pressuring you 
-- airports
-- homeless people  
-- hot spots / opportunities 
-    -  
-    - holidays / family gatherings 
-    - schools 
-    - protests 
-    - airports
-    - hotels
-    - Shopping centers

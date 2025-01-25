@@ -125,3 +125,7 @@ So far, I've been calling you all spirits but we are at war with some spiritual 
 
 
 If you are hearing voices and you can't bear it any longer, _you can_ participate in any of the meditations in this guide, though your spirit team's help will be invaluable.  To eradicate the voices, Google an image of a cemetary.  Study it, memorize it and envision it around you. 
+
+
+deities will just try anything, sure man why not
+getting a ghost to do anything is a huge challenge 
