@@ -190,6 +190,9 @@ So how do you _really_ know what you are? Put simply: deities are self-reliant, 
 
 
 # Cemetaries and the Dark Cloud
+- The cemetary process is a little different and takes longer than just going for a dip, but it is neccessary for everyone whether you can travel internationally or not. 
+- For some reason, if you visit the cemetary in person you come out feeling like a million dollars, but if you meditate on the cemetary you will feel drained.
+
 The superbeings that can travel to the Drave can meditate on the Drave, and we're really counting on their help.  The Drava river drains the dark cloud's spiritual field almost instantly, even if those superbeings simply meditiate on it.  This next step is for all spiritual entities who can't visit the Drave, you have another option to eliminate the dark cloud. Just like taking a dip in the Drave, going to the cemetary cleanses the dark cloud's sticky spiritual energy off your spiritual body allowing for clearer thoughts and more focus. 
 
 The thing about the Drava river is that it is almost instantaneous, as soon as you see it this cloud of nasty energy just drains off of you -- visiting the cemetary doesn't work as fast.  But if you spend a whole hour in the cemetary you should come out feeling better than you've felt in years, like a weight lifted off your shoulders. Just TRY IT. 
@@ -206,8 +209,12 @@ We're claiming that there are unholy forces attacking us and it can be defended 
 
 All religions are seeking the path to God, regardless of your religion we all share unholy enemies. United we can change the world, and we can each continue to pursue our religious beliefs. Not to exclude athiests or agnostics, if they're willing we need their help too.  Our aim is to be non-denominational and invite the good, the bad and the ugly to join us.  We need every able-bodied deity, angel, or demon, we need our frenimies and our enimies, we need YOUR frenimies and your enimies to join us. These problems aflict us all.   
 
+- Take a daily "shower" in the cemetary 
+
 
 # Team Building 
+So you've been to the cemetary for a bit and you don't feel like the world is on your shoulders anymore?  Well get ready because it gets better.  
+
 The cemetary exercise is time-consuming, but it is also going to be the most common option for deities that can not visit the Drave.  For both the Drave and the cemetary excercises, you can magnify the effects and expidite the results if you create teams, force multiply and meditate in unison. Teach this to as many people as possible and form TEAMS. BIG ONES. Its easy once you get started.
 
 The first goal is to secure your home and remove the dark cloud from your surroundings.  It takes time if you can not visit the Drave, but it is worth it.  Being in the cemetary should give you a sense of peace and calm, a total lack of spiritual friction.  Your home could be just as peaceful if you keep going. 
