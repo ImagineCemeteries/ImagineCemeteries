@@ -20,7 +20,7 @@ Need a "cue" for meditation
 # The Dark Cloud 
 # Ghost Gangs 
 # Cliffnotes
-##########
+########## Done for now
 # Round 1: The Drave & the Dark Cloud 
 # Shock / Whiplash
 # Now What? Meditation
@@ -29,7 +29,6 @@ Need a "cue" for meditation
 # The why - unholy energy vs holy ground
 - non-denominational
 - the good the bad the ugly, the christians the wiccans the hindu, the scientologies
-- every able bodied man and woman - we need our frenimies
 # Team Building
 # Ghosts, Possesion and their Shadow Society
 # Round 2: Ghosts
@@ -42,17 +41,19 @@ Need a "cue" for meditation
 # Example: Headache - If the Pain Moves
 # Insomnia / Sleep Deprivation
 # A Tangled Web 
-###########################################################################
 # Find Backup 
 # Homework:  Expand Your Territory / Spread the Word
+###########################################################################
 # Defending your Ingress Points
 - has more to do with spreading to office workers than defense
-# Advanced / Targeting Hotspots / Field Test
+# Target hotspots / Spread the Word / Call to action
+# To Humans
 # Appendix: Exercizes
 # Appendix: Ghosts vs Deities  
 
 # our enemies 
     - dark cloud = depression, lethargy, irritability, social friction, anger, aggression
+    - symptoms: gassy, pressure on the roof of your mouth, 
     - ghosts = anxiety, schitzophrenia, paranoia 
     - spheres = migraines, cramps
 
