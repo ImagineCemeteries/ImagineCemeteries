@@ -67,19 +67,47 @@ Need a "cue" for meditation
 
 # Introduction - To Humans and Otherwise
 - calling out ghosts right off the bat
-For me, this war started in March of 2020 right before covid hit the US. For 3 years, up until August 8th 2023, ghosts were my only enemy.  August 2023 I discovered how to kill ghosts, but the project caused so much commotion I was running into different spiritual forces constantly.  One of those spiritual forces is the dark cloud.  I have only spent a little over a year fighting the dark cloud, but I consider it our very worst enemy.  The problem with the dark cloud is that it can possess other spiritual entities, ghosts and deities included. The dark cloud creates feelings of depression, lethargy, irritability, social friction, in all spiritual beings, including humans, as we have a spiritual soul. These symptoms incite violence amongst spiritual beings and friction amongst humans, which is why I consider it the biggest threat. 
+For me, this war started in March of 2020 right before Covid hit the US. For 3 years, up until August 8th 2023, ghosts were my only enemy.  August 2023 I discovered how to kill ghosts, but the project caused so much commotion I was running into different spiritual forces constantly.  One of those spiritual forces is the dark cloud.  I have only spent a little over a year fighting the dark cloud, but I consider it our very worst enemy.  The problem with the dark cloud is that it can possess other spiritual entities, ghosts and deities included. The dark cloud creates feelings of depression, lethargy, irritability, social friction, in all spiritual beings, including humans, as we have a spiritual soul. These symptoms incite violence amongst spiritual beings and friction amongst humans, which is why I consider it the biggest threat. 
 
 - maybe something about contageous 
 
 This ENTIRE book is instructions for your spirit team, written in an order to eliminate problems the most efficiently.  You don't have to do anything but read it to them.  This book is designed to connect with the deities on your spirit team, help them eliminate the interlopers, help them help themselves and help them help YOU.  If you are feeling troubled read on for relief. 
 
+# Before you start
+I'd like to introduce the concept that spirits of all varieties need nutrition too.  That means YOU. When ghosts made their pressence known in my life in 2020, one of the symptoms was hearing voices, and they were a lot of them, they were mean as hell, and they talked continously.  Insults, demeaning verbiage, awful things all the time.  I realized early on that if I was drinking wine, they were nicer. That I could essentially get them drunk.  With this knowledge I started testing different substances on them, though I never tried other drugs, I tried a variety of supplements and methods to placate them with various degrees of success.  
+
+In the beginning, I thought all spirits were ghosts.  I didn't have a measure to differientiate them from deities, but eventually I realized that some "ghosts" were much kinder to me than the others, and we started working together to find ways to plactate the others. We stumbled on how to kill ghosts by chance, but for two years we experimented with different ways to support spiritual forms with nutrition.  After the ghosts were gone, we found that these options also support deitites. 
+
+Now that we have defeated the dark cloud, we found that some of the newly freed deities were extrememly malnourished.  Malnourished deities absorb nutrients from their surroundings, and can experience pain from being malnourished. Since you are probably watching over a variety of humains, you may start aborbing nourishment from them -- which, in extreme cases, can cause a considerable amount of pain to you both.  So we want to prevent that.
+
+We've found the following to be highly beneficial to deities who were recently freed from the dark cloud.  You don't need much of these; we are talking trace amounts, infinately small compared to a human diet.  These should prevent any pain this process could cause:  
+
+    1. Halogens from the periodic table, especially bromine (Br).  The other naturally occurring halogens are: fluorine (F), chlorine (Cl), iodine (I). 
+
+    2. The electrolytes magnesium and potassium
+
+Once again, you can absorb nutrients from your surroundings -- so the best way to kick this project off is to find a local swimming pool or hot tub, where bromine and chlorine is used as a sanitizer.  You need to spiritually submerge yourself in the water.  I don't think you'll need to stay longer than 10 or 15 minutes, but if it feels good stay as long you like. 
+
+There are small amounts of fluorine (F) and chlorine (Cl) in drinking water.  Though some people frown on drinking water from the tap, I encourge you to drink a glass.  If you are deficient in these, or recently free of the dark cloud,  drinking a tall glass of water may ease symptoms of skin tingling or feeling stressed. You should only need one glass, and you can feel out how often to have another.  If iodine is available, you can add a drop or two to the glass of water, but if not it is not as necessary as the others. 
+
+I want this reference to be completely free, but there is one purchase I'd like your human to make.  Magnesium salts, epson salts you would use to soak your feet in.  Luckily many people have these on hand, so hopefully one of your people will have them.  It would be most convienient if the person reading this can make them available to you. 
+
+This step can be a little strange if you are already defficient in magnesium.  I'd like you to get a kitchen pot (a bucket or a cup could work, but a metal vessal best), and add a half cup of espon salts to it and fill it with water.  Keep it near your human while you are watching TV, so just on the floor or something.
+
+The weird part is, they (your human) and you might feel an odd sensation, like your head is in a fish bowl.  This is normal and will pass after about 3 hours. You could also get a pot of epson salt water and put it next to your bed at night, or even under your bed as long as there are no bed skirts.  You can also, litterally get in the pot for a few minutes.  Again, if it feels good stay as long as you need.  The fishbowl feeling shouldn't happen again after the first time, now that you know what you need and its readily available to you. 
+
+If you are a person struggling with spiritual problems (such as feeling like you have a dark cloud over your head), I'd recommend you have magnesium in water available at all times.  You can get a metal vase or bowl, or even a regular vase or bowl and keep it on a shelf anywhere in your house.  It helps more people if they take a quick dip, but spirits will naturally absorb the magnesium when they visit you. 
+
+I also recommend that deities visit a Vitamin Shoppe or GNC regularily, this improves your mood and gives you a burst of energy.  You're going to need it. 
+
+This may seem trivial right now, but if you really feel like you are living under a dark cloud, or you want to help people who are, its absolutely vital that you know that you can prevent any pain with primarily bromine, magnesium, and tap water.  If you ever feel your skin start to tingle, feeling that your wearing a pony-tail too tight, or that someone is trying to pull your brain out of your skull, you need to drink a glass of tap water go to a public pool as soon as possible. 
+
 # The Dark Cloud 
-- everything I touch gets destroyed 
-The dark cloud is a sentient spiritual species, we call it the "dark cloud" because most people are familiar with the analogy of "a dark cloud hanging over your head".The dark cloud can entrap and possess spiritual lifeforms as well as humans.  This includes deities and ghosts.  The dark cloud creates friction and drives wedges between you, your goals, your family, your friends, your colleages, your neighbors and your spiritual alies. It also drives wedges between your spiritual alies, their friends, thier colleages, their neighbors and their spiritual alies.  The dark cloud is GIGANTIC, some can be as big as a litteral cloud -- a massive spiritual field that infects anything within its grasp.  It is also responsible for symptoms of fatigue, lethargy, irritability, and depression. 
+The dark cloud is a sentient spiritual species, we call it the "dark cloud" because most people are familiar with the analogy of "a dark cloud hanging over your head".  The dark cloud can entrap and possess spiritual lifeforms as well as humans.  This includes deities and ghosts.  The dark cloud creates friction and drives wedges between you, your goals, your family, your friends, your colleages, your neighbors and your spiritual alies. It also drives wedges between your spiritual alies, their friends, thier colleages, their neighbors and their spiritual alies.  The dark cloud is GIGANTIC, some can be as big as a litteral cloud -- a massive spiritual field that infects anything within its grasp.  It is also responsible for symptoms of fatigue, lethargy, irritability, and depression. 
 
-The dark cloud has the personality of a cranky senior citizen, or even an angry slug.  It is VERY slow moving. It is irritable and irritating, it leaves a trail of its spiritual matter where ever it goes.  You can encounter a dark cloud and occasionally escape it, but its spiritual "film" will be stuck to you.  We call this spiritual smog. Our team was hounded by these dark clouds for a year, they kept coming and coming but they were vulnerable to cemetaries.  Once they have a hold of you they don't like to let go, the beauty of this is I could just walk into a cemetary and stay there for a few hours for immense releif.  
+The dark cloud has the personality of a cranky senior citizen, or even an angry slug.  It is VERY slow moving. It is irritable and irritating, it leaves a trail of its spiritual matter where ever it goes.  You can encounter a dark cloud and occasionally escape it, but its spiritual "film" will be stuck to you.  We call this spiritual smog. Our team was hounded by these dark clouds for over two years, they kept coming and coming but they were vulnerable to cemetaries.  Once they have a hold of you they don't like to let go, the beauty of this is I could just walk into a cemetary and stay there for a few hours for immense releif.  
 
-In the beginning, destroying a dark cloud took weeks and months, and we were fighting several at the same time. Through our methods, we've been able to eradicate them in a couple hours. There are as many of them as any other spiritual species, they target humans but can catch anything in their spiritual field. Many aflicted humans can be caught in field of multiple dark clouds, each intertwined and layered on top of each other.  This makes humans and deities alike feel like they are consumed by something they can't escape, when they move, the dark cloud's spiritual smog moves with them and their every waking moment is lived through the veil of the dark cloud. 
+In the beginning, destroying a dark cloud took weeks and months, and we were fighting several at the same time. Through our methods, we've been able to eradicate them in a couple hours. There are as many of them as any other spiritual species, they target deities but can catch anything in their spiritual field. Many aflicted humans can be caught in field of multiple dark clouds, each intertwined and layered on top of each other.  This makes humans and deities alike feel like they are consumed by something they can't escape, when they move, the dark cloud's spiritual smog moves with them and their every waking moment is lived through the veil of the dark cloud. 
 
 The dark cloud gives humans, ghosts, and deities the feeling of needing to fight something they can't see. Because they can't see it, they fight everyone around them.  These individuals have an instinctual knowing there is something very wrong, but they don't know where its coming from. The dark cloud is such an huge threat because it engulfs anything in its path, notably deities.  When deities come into contact with this life-form, they become irritable and in some cases irtate.  There is nothing good about a grouchy deity.   We need happy deities.  We can't let this keep happening to anyone. 
 
@@ -87,7 +115,7 @@ From what I can tell about people and deities alike, your strategy for troubled 
  
 This book tackles spiritual problems head on.  We can't fix everything, even if it were just humans and deities and nothing else, no ghosts, no other things, people will still have problems or be problematic.  Some deities will still have problems or be problematic.  But the benefits of this guide are so incredible that where some of these shepards of troubled people have devote all of their time to cleaning up messes, they can take the information in this guide and eliminate 90% of their problems.  
 
-In humans, the dark cloud creates feelings of depression, lethargy, irritability, social friction, anger, and aggression.
+In humans, the dark cloud creates feelings of depression, lethargy, irritability, social friction, anger, and aggression.  It also creates flatulation, and a feeling that there is a pressure on the roof of their mouth.  The dark cloud is initially large, but will shrink as you progress.  It goes from feeling like there is pressure everywhere, any where you go, to just feeling like your head is in a fishbowl, then feeling like you have a bubble in your head, to hopefully nothing. 
 
 # Ghost Gangs
 Relative world peace has brought on a new problem.  In the past aggressors didn't get along well, steps forward in comunication and team work have created a new super set of spirits that join together in gang-like communities for the purpose of causing pain an misery to their many, many targets.  Often these targeted people are not special in anyway, they are just names on a list.  We are aware of these spiritual gangs practicing their violent methods for training purposes.  
@@ -249,6 +277,7 @@ Think about the top 5 people in your life that drive you crazy.  People who are 
 
 
 # Feel better _right now_ 
++ add nutrition
 Earlier I mentioned that one of our goals is to make you feel better.  Why?  Well first of all, we just want you to feel better. You're one of us and we've been there. You don't only deserve to feel better, you _have_ to feel better to help us unfuck this.  We _need_ your help.  Cleaning up this mess is punishment enough as it is. 
 
 Second of all, we're really not trying to take anyone's pain away. Sometimes when you feel bad you just need to feel it somehow, and it can be offensive to run into a bunch of people telling you "just don't feel bad."  But hear us out, we think the dark cloud is responsible for _making_ you feel bad; moreso than you would on your own.  Many of the things you regret may have been influenced by the dark cloud's negativity.  A few of the symptoms of being surrounded by the dark cloud are irritability, angst, dispair and in many cases spiritual violence. 
@@ -543,3 +572,20 @@ Join your teammates as they clear their home, their work and their family & frei
  hotels
 
  Build a big enough team to clear a store like the grocery store, then teach it to the deities that are left. 
+
+ # Random
+ - spirits "transfer" over meetings / pictures
+ - you can call people with pics/video 
+ - lock in 
+ - magnesium 
+ - halogens 
+ - outside
+ - electrolytes 
+ - immunity 
+ - trickle, wait an hour 
+
+ # Focus on 2 abilities
+ - portals 
+ - manifesting nutrition 
+
+ # How to teach this method 
