@@ -16,7 +16,8 @@ Human vs person
 Need a "cue" for meditation
 
 ####### Not sure about these 
-# Introduction - To humans and otherwise 
+# Introduction - To humans and otherwise
+# Before You Begin
 # The Dark Cloud 
 # Ghost Gangs 
 # Cliffnotes
@@ -66,91 +67,128 @@ Need a "cue" for meditation
 - Modern Manual for Spiritual Warfare
 
 # Introduction - To Humans and Otherwise
-- calling out ghosts right off the bat
-For me, this war started in March of 2020 right before Covid hit the US. For 3 years, up until August 8th 2023, ghosts were my only enemy.  August 2023 I discovered how to kill ghosts, but the project caused so much commotion I was running into different spiritual forces constantly.  One of those spiritual forces is the dark cloud.  I have only spent a little over a year fighting the dark cloud, but I consider it our very worst enemy.  The problem with the dark cloud is that it can possess other spiritual entities, ghosts and deities included. The dark cloud creates feelings of depression, lethargy, irritability, social friction, in all spiritual beings, including humans, as we have a spiritual soul. These symptoms incite violence amongst spiritual beings and friction amongst humans, which is why I consider it the biggest threat. 
+- its fun and it feels REALLY good 
+- things just start working out for you
+Me and my team of spiritual professionals have discovered a spiritual parasite affecting humans and deities alike.  We are trying to share the solution with as many people as we can reach. 
 
-- maybe something about contageous 
+For me, this war started in March of 2020 right before Covid hit the US. For 3 years, up until August 8th 2023, ghosts were my only enemy.  In August 2023 I discovered how to kill ghosts, but the project caused so much commotion I was running into different spiritual forces constantly.  One of those spiritual forces is the dark cloud.  I have only spent a little over two years fighting the dark cloud, but I consider it our very worst enemy.  The problem with the dark cloud is that it can possess other spiritual entities, ghosts and deities included. 
 
-This ENTIRE book is instructions for your spirit team, written in an order to eliminate problems the most efficiently.  You don't have to do anything but read it to them.  This book is designed to connect with the deities on your spirit team, help them eliminate the interlopers, help them help themselves and help them help YOU.  If you are feeling troubled read on for relief. 
+Ultimately, the dark cloud is more of a deity problem than a human problem, but we cohabitate so its our problem.  The dark cloud hunts deities.  The dark cloud also creates feelings of depression, lethargy, irritability, social friction, in all spiritual beings, including humans, as we have a spiritual soul. These symptoms incite violence amongst spiritual beings and friction amongst humans, which is why I consider it the biggest threat. In addition, its infectious and can spread from deity to deity, or even ghost to ghost. 
 
-# Before you start
-I'd like to introduce the concept that spirits of all varieties need nutrition too.  That means YOU. When ghosts made their pressence known in my life in 2020, one of the symptoms was hearing voices, and they were a lot of them, they were mean as hell, and they talked continously.  Insults, demeaning verbiage, awful things all the time.  I realized early on that if I was drinking wine, they were nicer. That I could essentially get them drunk.  With this knowledge I started testing different substances on them, though I never tried other drugs, I tried a variety of supplements and methods to placate them with various degrees of success.  
-
-In the beginning, I thought all spirits were ghosts.  I didn't have a measure to differientiate them from deities, but eventually I realized that some "ghosts" were much kinder to me than the others, and we started working together to find ways to plactate the others. We stumbled on how to kill ghosts by chance, but for two years we experimented with different ways to support spiritual forms with nutrition.  After the ghosts were gone, we found that these options also support deitites. 
-
-Now that we have defeated the dark cloud, we found that some of the newly freed deities were extrememly malnourished.  Malnourished deities absorb nutrients from their surroundings, and can experience pain from being malnourished. Since you are probably watching over a variety of humains, you may start aborbing nourishment from them -- which, in extreme cases, can cause a considerable amount of pain to you both.  So we want to prevent that.
-
-We've found the following to be highly beneficial to deities who were recently freed from the dark cloud.  You don't need much of these; we are talking trace amounts, infinately small compared to a human diet.  These should prevent any pain this process could cause:  
-
-    1. Halogens from the periodic table, especially bromine (Br).  The other naturally occurring halogens are: fluorine (F), chlorine (Cl), iodine (I). 
-
-    2. The electrolytes magnesium and potassium
-
-Once again, you can absorb nutrients from your surroundings -- so the best way to kick this project off is to find a local swimming pool or hot tub, where bromine and chlorine is used as a sanitizer.  You need to spiritually submerge yourself in the water.  I don't think you'll need to stay longer than 10 or 15 minutes, but if it feels good stay as long you like. 
-
-There are small amounts of fluorine (F) and chlorine (Cl) in drinking water.  Though some people frown on drinking water from the tap, I encourge you to drink a glass.  If you are deficient in these, or recently free of the dark cloud,  drinking a tall glass of water may ease symptoms of skin tingling or feeling stressed. You should only need one glass, and you can feel out how often to have another.  If iodine is available, you can add a drop or two to the glass of water, but if not it is not as necessary as the others. 
-
-I want this reference to be completely free, but there is one purchase I'd like your human to make.  Magnesium salts, epson salts you would use to soak your feet in.  Luckily many people have these on hand, so hopefully one of your people will have them.  It would be most convienient if the person reading this can make them available to you. 
-
-This step can be a little strange if you are already defficient in magnesium.  I'd like you to get a kitchen pot (a bucket or a cup could work, but a metal vessal best), and add a half cup of espon salts to it and fill it with water.  Keep it near your human while you are watching TV, so just on the floor or something.
-
-The weird part is, they (your human) and you might feel an odd sensation, like your head is in a fish bowl.  This is normal and will pass after about 3 hours. You could also get a pot of epson salt water and put it next to your bed at night, or even under your bed as long as there are no bed skirts.  You can also, litterally get in the pot for a few minutes.  Again, if it feels good stay as long as you need.  The fishbowl feeling shouldn't happen again after the first time, now that you know what you need and its readily available to you. 
-
-If you are a person struggling with spiritual problems (such as feeling like you have a dark cloud over your head), I'd recommend you have magnesium in water available at all times.  You can get a metal vase or bowl, or even a regular vase or bowl and keep it on a shelf anywhere in your house.  It helps more people if they take a quick dip, but spirits will naturally absorb the magnesium when they visit you. 
-
-I also recommend that deities visit a Vitamin Shoppe or GNC regularily, this improves your mood and gives you a burst of energy.  You're going to need it. 
-
-This may seem trivial right now, but if you really feel like you are living under a dark cloud, or you want to help people who are, its absolutely vital that you know that you can prevent any pain with primarily bromine, magnesium, and tap water.  If you ever feel your skin start to tingle, feeling that your wearing a pony-tail too tight, or that someone is trying to pull your brain out of your skull, you need to drink a glass of tap water go to a public pool as soon as possible. 
+This ENTIRE book is instructions for your spirit team, written in an order to eliminate problems the most efficiently.  You don't have to do anything but read it to them.  This book is designed to connect with the deities on your spirit team, help them eliminate the interlopers, help them help themselves and help them help YOU.  If you are feeling troubled read on for relief.
 
 # The Dark Cloud 
-The dark cloud is a sentient spiritual species, we call it the "dark cloud" because most people are familiar with the analogy of "a dark cloud hanging over your head".  The dark cloud can entrap and possess spiritual lifeforms as well as humans.  This includes deities and ghosts.  The dark cloud creates friction and drives wedges between you, your goals, your family, your friends, your colleages, your neighbors and your spiritual alies. It also drives wedges between your spiritual alies, their friends, thier colleages, their neighbors and their spiritual alies.  The dark cloud is GIGANTIC, some can be as big as a litteral cloud -- a massive spiritual field that infects anything within its grasp.  It is also responsible for symptoms of fatigue, lethargy, irritability, and depression. 
+The dark cloud is a sentient spiritual species, we call it the "dark cloud" because most people are familiar with the analogy of "a dark cloud hanging over your head".  The dark cloud can entrap and possess spiritual lifeforms as well as humans.  This includes deities and ghosts.  The dark cloud creates friction and drives wedges between you, your goals, your family, your friends, your colleagues, your neighbors and your spiritual allies. It also drives wedges between your spiritual allies, their friends, their colleagues, their neighbors and their spiritual allies.  The dark cloud is GIGANTIC, some can be as big as a literal cloud -- a massive spiritual field that infects anything within its grasp.  It is also responsible for symptoms of fatigue, lethargy, irritability, and depression. 
 
-The dark cloud has the personality of a cranky senior citizen, or even an angry slug.  It is VERY slow moving. It is irritable and irritating, it leaves a trail of its spiritual matter where ever it goes.  You can encounter a dark cloud and occasionally escape it, but its spiritual "film" will be stuck to you.  We call this spiritual smog. Our team was hounded by these dark clouds for over two years, they kept coming and coming but they were vulnerable to cemetaries.  Once they have a hold of you they don't like to let go, the beauty of this is I could just walk into a cemetary and stay there for a few hours for immense releif.  
+The dark cloud has the personality of a cranky senior citizen, or even an angry slug.  It is VERY slow moving. It is irritable and irritating, it leaves a trail of its spiritual matter where ever it goes.  You can encounter a dark cloud and occasionally escape it, but its spiritual "film" will be stuck to you.  We call this spiritual smog. Our team was hounded by these dark clouds for over two years, they kept coming and coming but they were vulnerable to cemeteries.  Once they have a hold of you they don't like to let go, the beauty of this is I could just walk into a cemetery and stay there for an hour to destroy them, providing immense relief.  By meditating on imagery of a cemetery, we found we could dissolve them without going to a cemetery directly.
 
-In the beginning, destroying a dark cloud took weeks and months, and we were fighting several at the same time. Through our methods, we've been able to eradicate them in a couple hours. There are as many of them as any other spiritual species, they target deities but can catch anything in their spiritual field. Many aflicted humans can be caught in field of multiple dark clouds, each intertwined and layered on top of each other.  This makes humans and deities alike feel like they are consumed by something they can't escape, when they move, the dark cloud's spiritual smog moves with them and their every waking moment is lived through the veil of the dark cloud. 
+In the beginning, destroying a dark cloud through meditation took weeks and months, and we were fighting several at the same time. Through our methods, we've been able to eradicate them in a couple hours. There are as many of them as any other spiritual species, they target deities but can catch anything in their spiritual field. Many afflicted humans can be caught in field of multiple dark clouds, each intertwined and layered on top of each other.  This makes humans and deities alike feel like they are consumed by something they can't escape, when they move, the dark cloud's spiritual smog moves with them and their every waking moment is lived through the veil of the dark cloud. 
 
-The dark cloud gives humans, ghosts, and deities the feeling of needing to fight something they can't see. Because they can't see it, they fight everyone around them.  These individuals have an instinctual knowing there is something very wrong, but they don't know where its coming from. The dark cloud is such an huge threat because it engulfs anything in its path, notably deities.  When deities come into contact with this life-form, they become irritable and in some cases irtate.  There is nothing good about a grouchy deity.   We need happy deities.  We can't let this keep happening to anyone. 
+The dark cloud gives humans, ghosts, and deities the feeling of needing to fight something they can't see. Because they can't see it, they fight everyone around them.  These individuals have an instinctual knowing there is something very, very wrong, but they don't know where its coming from. The dark cloud is such an huge threat because it engulfs anything in its path, notably deities.  When deities come into contact with this life-form, they become irritable and in some cases irate.  There is nothing good about a grouchy deity.   We need happy deities.  We can't let this keep happening to anyone. 
 
-From what I can tell about people and deities alike, your strategy for troubled people is to avoid them. This book is directed at the deities that shepard troubled people, deities that know of a few troubled people but don't know how to help them, or even deities that are troubled themselves. If we don't fight the dark cloud, it will keep spreading.  Especially if deities tend to avoid the problem. 
+From what I can tell about people and deities alike, your strategy for troubled people is to avoid them. This book is directed at the deities that shepherd troubled people, deities that know of a few troubled people but don't know how to help them, or even deities that are troubled themselves. If we don't fight the dark cloud, it will keep spreading.  Especially if deities tend to avoid the problem. 
  
-This book tackles spiritual problems head on.  We can't fix everything, even if it were just humans and deities and nothing else, no ghosts, no other things, people will still have problems or be problematic.  Some deities will still have problems or be problematic.  But the benefits of this guide are so incredible that where some of these shepards of troubled people have devote all of their time to cleaning up messes, they can take the information in this guide and eliminate 90% of their problems.  
+This book tackles spiritual problems head on.  We can't fix everything, even if it were just humans and deities and nothing else, no ghosts, no other things, people will still have problems or be problematic.  Some deities will still have problems or be problematic.  But the benefits of this guide are so incredible that where some of these shepherds of troubled people have devote all of their time to cleaning up messes, they can take the information in this guide and eliminate 90% of their problems.  
 
-In humans, the dark cloud creates feelings of depression, lethargy, irritability, social friction, anger, and aggression.  It also creates flatulation, and a feeling that there is a pressure on the roof of their mouth.  The dark cloud is initially large, but will shrink as you progress.  It goes from feeling like there is pressure everywhere, any where you go, to just feeling like your head is in a fishbowl, then feeling like you have a bubble in your head, to hopefully nothing. 
+In humans, the dark cloud creates feelings of depression, lethargy, irritability, social friction, anger, and aggression.  It also creates flatulation, and a feeling that there is a pressure on the roof of your human's mouth.  The dark cloud is initially large, but will shrink as you progress.  It goes from feeling like there is pressure everywhere, any where you go, to just feeling like your head is in a fishbowl, then feeling like you have a bubble in your head, to hopefully nothing. 
+
+# Before You Begin - Introduction to Possession and Spiritual Nutrition
+First, I'd like to explain a concept we call "locking in."  Some of you like to hover at the top of the skull, like your human is wearing you like a hat.  Not good.  Where you want to be is much lower, over the spinal column and right in-between the ear lobes.  This should make you and your human far more comfortable. 
+
+Second, I'd like to introduce the concept that spirits of all varieties need nutrition too.  That means YOU. When ghosts made their presence known in my life in 2020, one of the symptoms was hearing voices, and there were a lot of them, they were mean as hell, and they talked continuously.  Insults, demeaning verbiage, awful things all the time.  I realized early on that if I was drinking wine, they were nicer. That I could essentially get them drunk.  With this knowledge I started testing different substances on them, though I never tried other drugs, I tried a variety of supplements and methods to placate them with various degrees of success.  
+
+In the beginning, I thought all spirits were ghosts.  I didn't have a measure to differentiate them from deities, but eventually I realized that some "ghosts" were much kinder to me than the others, and we started working together to find ways to placate the rest of them. We stumbled on how to kill ghosts by chance, but for two years we experimented with different ways to support spiritual forms with nutrition.  After the ghosts were gone, we found that these options also support deities. 
+
+Now that we have defeated the dark cloud in our locale, we found that some of the newly freed deities were extremely malnourished.  Malnourished deities absorb nutrients from their surroundings, and can experience pain from being malnourished. Since you are probably watching over a variety of humans, you may start absorbing nourishment from them -- which, in extreme cases, can cause a considerable amount of pain to you both.  So we want to prevent that.
+
+We've found the following to be highly beneficial to deities who were recently freed from the dark cloud.  You don't need much of these nutrients; we are talking trace amounts, infinitely small compared to a human diet.  The following should prevent any pain this process could cause:  
+
+    1. Get a glass of tap water and take a multi-vitamin
+    
+    2. Go outside for an hour (or leave a window cracked)
+    
+    3. Halogens from the periodic table, especially bromine (Br).  The other naturally occurring halogens are: fluorine (F), chlorine (Cl), iodine (I). 
+
+    4. The electrolytes magnesium and potassium (do NOT have your human drink these, you will absorb it involuntarily and worsen the problem)
+
+Once again, you can absorb nutrients from your surroundings -- so the best way to kick this process off is to find a local swimming pool or hot tub, where bromine and chlorine are used as sanitizers.  You need to spiritually submerge yourself in the water.  I don't think you'll need to stay longer than 10 or 15 minutes, but if it feels good stay as long you like.  If you soak your "feet" in the water, it knocks out the first two steps. 
+
+If you can just crack a window, that is all you need.  We did all of our research and testing in Florida, where the AC is always on and the windows are never open.  I am aware that deities can teleport, so going from a house to an office building downtown may mean that you never actually go outside.  Many, many deities seem to behave this way and you absorb nutrition from your environment, so if you are inside all day everyday, all you are getting is recycled air.  Recycled air that you are sharing with humans and other spiritual life forms.  
+
+We don't know what exactly you are getting from the "outside", but we know it relaxes you and improves your focus, like each step on this list. If it has been days or weeks since you've been outside, spend an hour outside after your human's have gone to bed. After that, you should only need 15 or 20 minutes a day. But, you must consider that you are not the only spirit living with your human, especially if they are troubled.  To ensure they are all relaxed and focused, encourage your human to go outside for 20 minutes. If they haven't been out in a while, an hour would be better, but we're trying to work within your ability to influence.
+
+There are small amounts of fluorine (F) and chlorine (Cl) in drinking water.  Though some people frown on drinking water from the tap, I encourage you to drink a glass.  If you are deficient in fluorine and chlorine, or recently free of the dark cloud,  drinking a tall glass of water may ease symptoms of skin tingling or feeling stressed. You should only need one glass, and you can feel out how often to have another.  If iodine is available, you can add a drop or two to the glass of water, but if not it is not as necessary as the others. 
+
+In addition, make sure your humans are taking a multi-vitamin.  Your nutrition is linked to their nutrition, if you aren't getting what you need, you're going to absorb it involuntarily from your surroundings. 
+
+I want this reference to be completely free, but there is one purchase I'd like your human to make.  Magnesium salts, Epson salts you would use to soak your feet in.  Luckily many people have these on hand, so hopefully one of your people will have them.  It would be most convenient if the person reading this can make them available to you. 
+
+This step can be a little strange if you are already deficient in magnesium.  I'd like you to get a kitchen pot (a bucket or a cup could work, but a metal vessel is best), and add a half cup of Epson salts to it and fill it with water.  Keep it near your human while you are watching TV, so just on the floor or something.
+
+The weird part is, you and your human might feel an odd sensation, like your head is in a fish bowl.  This is normal and will pass after about 3 hours. You could also get a pot of Epson salt water and put it next to your bed at night, or even under your bed as long as there are no bed skirts.  You can also, literally get in the pot for a few minutes.  Again, if it feels good stay as long as you need.  The fishbowl feeling shouldn't happen again after the first time, now that you know what you need and its readily available to you. 
+
+If you are a person struggling with spiritual problems (such as feeling like you have a dark cloud hanging over your head), I'd recommend you have magnesium in water available at all times.  You can get a metal vase or bowl, or even a regular vase or bowl and keep it on a shelf anywhere in your house.  It helps more people if they take a quick dip, but spirits will naturally absorb the magnesium when they visit you. 
+
+I also recommend that deities visit a Vitamin Shoppe or GNC regularly, this improves your mood and gives you a burst of energy.  You're going to need it. 
+
+These details may seem trivial right now, but if you really feel like you are living under a dark cloud, or you want to help people who are, its absolutely vital that you know that you can prevent any pain by Locking In, and having access to bromine, magnesium, and tap water.  If you ever feel your skin start to tingle, or feel like you're wearing a pony-tail too tight, or that someone is trying to pull your brain out of your skull, you need to drink a glass of tap water and go to a public pool as soon as possible, and make sure you are Locked In. 
+
+So again here are the steps: 
+    1. Drink a glass of tap water and take a multi-vitamin 
+
+    2. Soak in a swimming pool for about 20 minutes
+
+    3. Get access to some Epsom salts (your human CAN soak their feet in these, if they prefer)
 
 # Ghost Gangs
-Relative world peace has brought on a new problem.  In the past aggressors didn't get along well, steps forward in comunication and team work have created a new super set of spirits that join together in gang-like communities for the purpose of causing pain an misery to their many, many targets.  Often these targeted people are not special in anyway, they are just names on a list.  We are aware of these spiritual gangs practicing their violent methods for training purposes.  
+The world is haunted.  Relative world peace has brought on a new problem.  In the past spiritual aggressors didn't get along well, steps forward in communication and teamwork have created a new super set of spirits that join together in gang-like communities for the purpose of causing pain an misery to their many, many targets.  Often these targeted people are not special in anyway, they are just names on a list.  We are aware of these spiritual gangs practicing their violent methods for training purposes.  
 
-Spiritually troubled people may not be able to bounce back rapidly.  They have experienced things they don't understand and can't risk telling anyone about.  But we can prevent the majority of this from happening to new people. 
+Spiritually troubled people may not bounce back rapidly.  They have experienced things they don't understand and can't risk telling anyone about.  But we can prevent the majority of this from happening to new people. 
 
-Not all ghosts, but ghosts like these are responsible for feelings of anxiety, schitzophrenia, paranoia in humans and spirtual kind. 
+Not all ghosts, but ghosts like these are responsible for feelings of anxiety, schizophrenia, and paranoia in humans and spiritual kind.  The upside is, they are much easier than the dark cloud to exterminate.  
+
+# Getting Started 
+Since you've completed the first few steps on nutrition, we want to get you more relief as fast as possible.  I have detailed explanations on what we're about to do in later sections, but we're going to do some population control before we get into the hard stuff.  Now remember, this is a book on spiritual warfare, everything in here is going to be a little weird but give it a shot. These should be quick: 
+
+    1.  Release Djinn:  Pause the video and solemnly repeat the following aloud, "I release you.  You are loved but you are free." 
+
+    2.  Remove ghosts: Picture the last cemetery you visited.  Envision yourself there, imagine that the cemetery spreads across your room and through your house. If you have never been to a cemetery before, pause the video and look up a picture online and imagine the cemetery surrounds you.  This should not take any mental gymnastics, all you need is a photo or a memory. 
+
+Congratulations!  If you are still here you are a deity. 
 
 # Cliff Notes
-- compelling
+- haven't emphasized returning to the Drave/cemetery weekly for maintenance 
 If all you did was read this chapter, this is what you need to know. This the message that my spirit team wants to give to your spirit team. 
 
-    1. If you can travel globally, go swim in the Drava river in Austria
+    1. Lock In - Some of you like to hover at the top of the skull, like your human is wearing you like a hat.  Not good.  Where you want to be is much lower, over the spinal column and right in-between the ear lobes.  We call this "locking in", this should make you and your human far more comfortable.
 
-    2. If you can not travel globally, go to the nearest cemetary and touch a tree.  For an hour. 
+    2. If you can travel globally, go swim in the Drava river in Austria.  For an hour.  Its in Europe, it goes through four countries.  Look it up and visit it as soon as you can. 
+    3. If you can not travel globally, go to the nearest cemetery, pick a tree and get IN the tree.  For an hour.  Return to the cemetery weekly for about 20 minutes.
 
-    3. Nourish yourselves.  You are supernatural beings with supernatural needs.  You can abosorb nutrients from your surroundings.  Have you ever walked into the kitchen, opened the refridgerator and just stared at it before walking away?  You are absorbing nutrients molecularily. Visit the following places for a few minutes each: 
+    4. Nourish yourselves.  You are supernatural beings with supernatural needs.  You can absorb nutrients from your surroundings.  Have you ever walked into the kitchen, opened the refrigerator and just stared at it before walking away?  You are absorbing nutrients molecularly. Follow the following steps: 
 
-        1. Produce section at the grocery store
-        2. Spice section at the grocery store 
-        3. The tea section at the grocery store
-        4. Vitamin Shoppe or GNC
-        5. Biggest crystal store you know 
-        6. The pharmacy at CVS, Walgreens or Walmart
-        7. The Periodic Table of Elements - insert table 
-
-    5. The dark cloud and the ghosts likely cohabitate with you in your home.  If you were able to visit the Drave then meditate on its waters, imagine the river flowing through your home.  You will feel a sensation as you are meditating, like a rush or a draining feeling.  Eventually, this will drain the dark cloud from your surroundings, work your way up to 15 minutes and move on to the next step.  
-
-    4. To eliminate the ghosts, envision yourself in a cemetary.  Focus on the tree and imagine the landscape overlaid in your home.  Its holy ground, the only holy ground we know of that is common to everyone.  You are opening a portal to the cemetary just by thinking about it.  The effect on ghosts should be instantaneous, try it for 15 minutes. 
+        a. Drink a glass of tap water and take a multi-vitamin
+        b. Get access to some Epsom salts (your human CAN soak their feet in these, if they prefer)
     
-    6. If you weren't able to visit the Drave, you can still meditate on the cemetary to destory the dark cloud.  After meditating on the cemetary momentarily, the ghosts will be gone.  You may find that it is quieter, and any beings left are deities.  These are the people you want on your team.  To defeat the dark cloud, you will have to work together and train together, working your way up to meditating on the cemetary from minutes, to hours. This is much easier if you can build a team to meditate together.  Pace yourself and take breaks. 
+    Visit the following places for a few minutes each: 
 
-    7. In addition to the dark cloud and ghosts, we've ran into what we call "Spheres" -- small balls of painful energy between the size of a marble and a golf ball.  To our knowledge these are sentient life forms, they tend to hang out in your human's head and cause headaches.  The good news is all you have to do is touch them, and they "pop". Reach into your human's head and try to grab them, they will move around suddenly, and even travel into your human's body.  This makes them fun to "catch", and it only takes a few minutes before they are gone for good.  
+        a. Soak in a swimming pool for about 20 minutes 
+        b. Go to the produce section at the grocery store
+        c. Go to the spice section at the grocery store 
+        d. Go to the tea section at the grocery store
+        e. Go to a Vitamin Shoppe or GNC
+        f. Go to the biggest crystal store you know 
+        g. Go to the pharmacy at CVS, Walgreens or Walmart
 
-    8. Thats it! A bunch of ghosts cheated judgement, the dark cloud came from who knows where, these sphere type beings are painful and irritating, and the deities are all starving for nourishment. Take care of yourself, pop the spheres and meditate on the Drave where posible, cemetaries otherwise. 
+    If it feels good stay as long as you need!  After the first time you should not need to stay very long. The first time is kind of like a booster pack.  Continue visiting regularly. 
+
+    5. To eliminate the ghosts, envision yourself in a cemetery.  Focus on a tree in the cemetery and imagine the landscape overlaid in your home.  You are opening a portal to the cemetery just by thinking about it.  After meditating on the cemetery momentarily the ghosts will be gone, but it might take a little practice to get it right.  You may find that that your mind is quieter, and any beings left are deities.  These are the people you want on your team.  Try it for 15 minutes, walk through every room of your house envisioning the cemetery and if you don't live alone be sure to imagine the cemetery surrounding your roommates and your family.  As, like you, that's where the ghosts live. 
+    
+    6.  Even if you weren't able to visit the Drave, you can still meditate on the Drave to destroy the dark cloud. Look up an image of the river, pick a single photo and meditate on its waters. Imagine the river flowing through your home.  You will feel a sensation as you are meditating, like a rush or a draining feeling.  Eventually, this will drain the dark cloud from your surroundings.  To defeat the dark cloud, you will have to work together and train together, working your way up to meditating on the Drave from minutes, to hours. This is much easier if you can build a team to meditate together.  Pace yourself and take breaks. 
+
+    7. In addition to the dark cloud and ghosts, we've ran into what we call "Spheres" -- small balls of painful energy between the size of a marble and a golf ball.  To our knowledge these are sentient life forms, they tend to hang out in your human's head and cause headaches.  The good news is all you have to do is touch them, and they "pop". If your human gets headaches, reach into your human's head and try to grab them. They will move around suddenly, and even travel into your human's body.  This makes them fun to "catch", and it only takes a few minutes before they are gone for good.  
+
+That's it! A bunch of ghosts cheated judgement, the dark cloud came from who knows where, these sphere type beings are painful and irritating, and the deities are all starving for nourishment. Take care of yourself, pop the spheres and meditate on the Drave where possible, cemeteries otherwise. 
 
 # Round 1: The Drave & the Dark Cloud
 A dark cloud is not only hanging over your head, it is a sentient spiritual species. We gotta get rid of it and get you guys and gals feeling better.
@@ -290,6 +328,8 @@ If you really have to, don't kick yourself just yet, save it for later because w
 
 
 # You are supernatural beings with supernatural needs
+- tons of editing
+- vitamin
 When we feel drained, we've found that we can also supplement ourselves directly through our surroundings or indirectly through meditation.  We are supernatural beings with supernatural needs, what is best for the human body isn't enough for us. 
 
 Some may call this "energy vampires", but we disagree. Deities have the ability to pull nutrients from their surroundings, it is so natural you don't even have to think about it.  So if you are "malnurished", or feeling drained you are naturally going to absorb nurishment from your surroundings, including your humans.  This can leave them feeling drained and exhausted.  Its imperitive that your humans take daily multi-vitamins at minimum. 
@@ -583,6 +623,7 @@ Join your teammates as they clear their home, their work and their family & frei
  - electrolytes 
  - immunity 
  - trickle, wait an hour 
+ - that thing where if you have a dark cloud, you have to "hold" the ball in the middle of their head
 
  # Focus on 2 abilities
  - portals 
