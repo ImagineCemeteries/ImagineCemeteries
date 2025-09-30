@@ -111,7 +111,7 @@ We've found the following to be highly beneficial to deities who were recently f
 
     4. The electrolytes magnesium and potassium (do NOT have your human drink these, you will absorb it involuntarily and worsen the problem)
 
-Once again, you can absorb nutrients from your surroundings -- so the best way to kick this process off is to find a local swimming pool or hot tub, where bromine and chlorine are used as sanitizers.  You need to spiritually submerge yourself in the water.  I don't think you'll need to stay longer than 10 or 15 minutes, but if it feels good stay as long you like.  If you soak your "feet" in the water, it knocks out the first two steps. 
+Once again, you can absorb nutrients from your surroundings -- so the best way to kick this process off is to find a local swimming pool or hot tub, where bromine and chlorine are used as sanitizers.  You need to spiritually submerge yourself in the water.  I don't think you'll need to stay longer than 10 or 15 minutes, but if it feels good stay as long you like.  If you soak your "feet" in the water, it knocks out steps two and three. 
 
 If you can just crack a window, that is all you need.  We did all of our research and testing in Florida, where the AC is always on and the windows are never open.  I am aware that deities can teleport, so going from a house to an office building downtown may mean that you never actually go outside.  Many, many deities seem to behave this way and you absorb nutrition from your environment, so if you are inside all day everyday, all you are getting is recycled air.  Recycled air that you are sharing with humans and other spiritual life forms.  
 
@@ -121,13 +121,13 @@ There are small amounts of fluorine (F) and chlorine (Cl) in drinking water.  Th
 
 In addition, make sure your humans are taking a multi-vitamin.  Your nutrition is linked to their nutrition, if you aren't getting what you need, you're going to absorb it involuntarily from your surroundings. 
 
-I want this reference to be completely free, but there is one purchase I'd like your human to make.  Magnesium salts, Epson salts you would use to soak your feet in.  Luckily many people have these on hand, so hopefully one of your people will have them.  It would be most convenient if the person reading this can make them available to you. 
+I want this reference to be completely free, but there are two purchases I'd like your human to make.  Magnesium salts, Epson salts you would use to soak your feet in, and potassium chloride a common sodium substitute.  Luckily many people have Epsom salts on hand, so hopefully one of your people will have them.  It would be most convenient if the person reading this can make them available to you. 
 
-This step can be a little strange if you are already deficient in magnesium.  I'd like you to get a kitchen pot (a bucket or a cup could work, but a metal vessel is best), and add a half cup of Epson salts to it and fill it with water.  Keep it near your human while you are watching TV, so just on the floor or something.
+This step can be a little strange if you are already deficient in magnesium.  I'd like you to get a kitchen pot (a bucket or a cup could work, but a metal vessel is best), and add a half cup of Epson salts to it, a fourth of a cup of potassium, and fill it with water.  Keep it near your human while you are watching TV, so just on the floor or something.
 
-The weird part is, you and your human might feel an odd sensation, like your head is in a fish bowl.  This is normal and will pass after about 3 hours. You could also get a pot of Epson salt water and put it next to your bed at night, or even under your bed as long as there are no bed skirts.  You can also, literally get in the pot for a few minutes.  Again, if it feels good stay as long as you need.  The fishbowl feeling shouldn't happen again after the first time, now that you know what you need and its readily available to you. 
+The weird part is, you and your human might feel an odd sensation, like your head is in a fish bowl.  This is normal and will pass after about 3 hours. You could also get a pot of electrolyte water and put it next to your bed at night, or even under your bed.  You can also, literally get in the pot for a few minutes.  Again, if it feels good stay as long as you need.  The fishbowl feeling shouldn't happen again after the first time, now that you know what you need and its readily available to you. 
 
-If you are a person struggling with spiritual problems (such as feeling like you have a dark cloud hanging over your head), I'd recommend you have magnesium in water available at all times.  You can get a metal vase or bowl, or even a regular vase or bowl and keep it on a shelf anywhere in your house.  It helps more people if they take a quick dip, but spirits will naturally absorb the magnesium when they visit you. 
+If you are a person struggling with spiritual problems (such as feeling like you have a dark cloud hanging over your head), I'd recommend you have electrolyte water available at all times.  You can get a metal vase or bowl, or even a regular vase or bowl and keep it on a shelf anywhere in your house.  It helps more people if they take a quick dip, but spirits will naturally absorb the electrolytes when they visit you.  If all you have are Epsom salts, get started with those. 
 
 I also recommend that deities visit a Vitamin Shoppe or GNC regularly, this improves your mood and gives you a burst of energy.  You're going to need it. 
 
@@ -150,7 +150,7 @@ Not all ghosts, but ghosts like these are responsible for feelings of anxiety, s
 # Getting Started 
 Since you've completed the first few steps on nutrition, we want to get you more relief as fast as possible.  I have detailed explanations on what we're about to do in later sections, but we're going to do some population control before we get into the hard stuff.  Now remember, this is a book on spiritual warfare, everything in here is going to be a little weird but give it a shot. These should be quick: 
 
-    1.  Release Djinn:  Pause the video and solemnly repeat the following aloud, "I release you.  You are loved but you are free." 
+    1.  Release Djinn:  Solemnly repeat the following aloud, "I release you.  You are loved but you are free." 
 
     2.  Remove ghosts: Picture the last cemetery you visited.  Envision yourself there, imagine that the cemetery spreads across your room and through your house. If you have never been to a cemetery before, pause the video and look up a picture online and imagine the cemetery surrounds you.  This should not take any mental gymnastics, all you need is a photo or a memory. 
 
@@ -163,11 +163,13 @@ If all you did was read this chapter, this is what you need to know. This the me
     1. Lock In - Some of you like to hover at the top of the skull, like your human is wearing you like a hat.  Not good.  Where you want to be is much lower, over the spinal column and right in-between the ear lobes.  We call this "locking in", this should make you and your human far more comfortable.
 
     2. If you can travel globally, go swim in the Drava river in Austria.  For an hour.  Its in Europe, it goes through four countries.  Look it up and visit it as soon as you can. 
+
     3. If you can not travel globally, go to the nearest cemetery, pick a tree and get IN the tree.  For an hour.  Return to the cemetery weekly for about 20 minutes.
 
     4. Nourish yourselves.  You are supernatural beings with supernatural needs.  You can absorb nutrients from your surroundings.  Have you ever walked into the kitchen, opened the refrigerator and just stared at it before walking away?  You are absorbing nutrients molecularly. Follow the following steps: 
 
         a. Drink a glass of tap water and take a multi-vitamin
+        b. Go outside daily or leave a window cracked. Spend an hour outside if its been a while, but a few minutes a day can do wonders
         b. Get access to some Epsom salts (your human CAN soak their feet in these, if they prefer)
     
     Visit the following places for a few minutes each: 
@@ -186,7 +188,7 @@ If all you did was read this chapter, this is what you need to know. This the me
     
     6.  Even if you weren't able to visit the Drave, you can still meditate on the Drave to destroy the dark cloud. Look up an image of the river, pick a single photo and meditate on its waters. Imagine the river flowing through your home.  You will feel a sensation as you are meditating, like a rush or a draining feeling.  Eventually, this will drain the dark cloud from your surroundings.  To defeat the dark cloud, you will have to work together and train together, working your way up to meditating on the Drave from minutes, to hours. This is much easier if you can build a team to meditate together.  Pace yourself and take breaks. 
 
-    7. In addition to the dark cloud and ghosts, we've ran into what we call "Spheres" -- small balls of painful energy between the size of a marble and a golf ball.  To our knowledge these are sentient life forms, they tend to hang out in your human's head and cause headaches.  The good news is all you have to do is touch them, and they "pop". If your human gets headaches, reach into your human's head and try to grab them. They will move around suddenly, and even travel into your human's body.  This makes them fun to "catch", and it only takes a few minutes before they are gone for good.  
+    7. In addition to the dark cloud and ghosts, we've ran into what we call "Spheres" -- small balls of painful energy between the size of a marble and a golf ball.  To our knowledge these are sentient life forms, they tend to hang out in your human's head and cause headaches.  The good news is all you have to do is touch them, and they "pop". If your human gets headaches, reach into your human's head and try to grab the painful area. They will move around suddenly, and even travel into your human's body.  This makes them fun to "catch", and it only takes a few minutes before they are gone for good.  
 
 That's it! A bunch of ghosts cheated judgement, the dark cloud came from who knows where, these sphere type beings are painful and irritating, and the deities are all starving for nourishment. Take care of yourself, pop the spheres and meditate on the Drave where possible, cemeteries otherwise. 
 
@@ -259,7 +261,9 @@ The superbeings that can travel to the Drave can meditate on the Drave, and we'r
 
 The thing about the Drava river is that it is almost instantaneous, as soon as you see it this cloud of nasty energy just drains off of you -- visiting the cemetary doesn't work as fast.  But if you spend a whole hour in the cemetary you should come out feeling better than you've felt in years, like a weight lifted off your shoulders. Just TRY IT. 
 
-Go to the last cemetary you remember, put your hands on a tree in the cemetary.  The tree is IMPORTANT because it accelerates the process. Just being in a cemetary doesn't cut it.  Then you need to stay there for at least 20 mintutes, but an hour if you can.  We recommend repeating this process daily, having "a shower" will clear your mind, sharpen your focus and prepare you for the daily battles ahead.  
+Go to the last cemetary you remember, get inside of a tree just like you are inside of your human.  The tree is IMPORTANT because it accelerates the process. Just being in a cemetary doesn't cut it.  Then you need to stay there for at least an hour the first time, but it feels incredible.  You will feel a rushing or draining sensation, almost like you were taking a shower.  When the process completes, you will feel this rushing sensation stop and start in spurts.  It is hard to estimate how long this takes from deity to deity, generally, the worse you feel the longer it takes. But you will feel better and better everytime you go. Try to make it long enough for the stream to start to sputter.  That could take as long as three hours, but for most its around an hour.  
+
+The dark cloud is fluid, and areas of high pressure will flow to areas of low pressure, so when you are done the dark cloud may redistribute itself in the hours you are away from the cemetary, but it will be much weaker.  You need to keep making trips to the cemetary to complete the process, you will know it is done because it won't feel like you are taking a shower. We recommend repeating this process daily, having "a shower" will clear your mind, sharpen your focus and prepare you for the daily battles ahead.  
 
 Once you've been to the cemetary in person, you can also meditate on it to clear the dark cloud from your home. Take a mental photograph of a cemetary tree surrounded by headstones so that you can meditate on it at will.  Start with yourself first, all you need to do is imagine yourself in a cemetary touching a tree.  I wish this process was as short and sweet as the Drave but it takes a while.  If you can work towards or commit to an hour of meditation in your home, simply envisioning the cemetary around you, you will feel an absence of friction and the dark cloud being drained away. 
 
@@ -267,6 +271,7 @@ The only caveot is that the dark cloud _litterally_ comes from above, specifical
 
 Meditating on the cemetary _on the roof_ is the next step.  The dark cloud will be centered above your human, you don't want to sit directly under that energetic tunnel but off to the side.  Then go to the roof of the house and imagine a cemetary.  Center the tree over where your human is below and continue meditating until the dark cloud's energy is gone.  Placing the tree right in the dark cloud's energetic tentacle accellerates the process.  Even if you don't get it perfect it works, with practice you and your team will be able to tackle these entities in hours or minutes. 
 
+- call to action?
 We're claiming that there are unholy forces attacking us and it can be defended with holy ground, and maybe a few other tips and tricks, like the Drava river.  We are aiming to defeat unholy, malicious forces with holy ground -- in this case the cemetary.  We choose cemetaries because they are religiously neutral, spiritual deadzones, common and accessable to all.  We do not want to dance on religious lines -- we want all of you, from any walk of life to help us fight this spiritual war. 
 
 All religions are seeking the path to God, regardless of your religion we all share unholy enemies. United we can change the world, and we can each continue to pursue our religious beliefs. Not to exclude athiests or agnostics, if they're willing we need their help too.  Our aim is to be non-denominational and invite the good, the bad and the ugly to join us.  We need every able-bodied deity, angel, or demon, we need our frenimies and our enimies, we need YOUR frenimies and your enimies to join us. These problems aflict us all.   
@@ -328,25 +333,30 @@ If you really have to, don't kick yourself just yet, save it for later because w
 
 
 # You are supernatural beings with supernatural needs
-- tons of editing
-- vitamin
-When we feel drained, we've found that we can also supplement ourselves directly through our surroundings or indirectly through meditation.  We are supernatural beings with supernatural needs, what is best for the human body isn't enough for us. 
+- edits done
+When we feel drained, we've found that we can also supplement ourselves directly through our surroundings or indirectly through meditation.  We are supernatural beings with supernatural needs, what is best for the human body isn't enough for us.  
 
-Some may call this "energy vampires", but we disagree. Deities have the ability to pull nutrients from their surroundings, it is so natural you don't even have to think about it.  So if you are "malnurished", or feeling drained you are naturally going to absorb nurishment from your surroundings, including your humans.  This can leave them feeling drained and exhausted.  Its imperitive that your humans take daily multi-vitamins at minimum. 
+Some may call this "energy vampires", but we disagree. Deities have the ability to pull nutrients from their surroundings, it is so natural you don't even have to think about it.  So if you are "malnourished", or feeling drained you are naturally going to absorb nourishment from your surroundings, including your humans.  This can leave you both feeling exhausted.  Its imperative that your humans take daily multi-vitamins at minimum, and you've got to take care of yourself too. 
 
-Proactively surrouding yourself with nutritious sources will improve your comfort and mood considerably.  Please take some time out of your day and travel to the following places, spend 5 minutes in each place: 
+We've had a lot of success by encouraging spiritual beings to gain access to halogen's from the periodic table and common electrolytes.  Tap water contains the halogens fluorine (F) and chlorine (Cl), and you can access bromine (Br) in many swimming pools.  Bromine can be the hardest to access, but we've learned that it gives spiritual beings incredible relief if you know where to find it.  Sodium is an electrolyte that is readily available, but magnesium and potassium may be more difficult to get a hold of.  
 
- 1. Produce section at the grocery store
- 2. Spice section at the grocery store 
- 3. The tea section at the grocery store
- 4. Vitamin Shoppe or GNC
- 5. Biggest crystal store you know 
- 6. The pharmacy at CVS, Walgreens or Walmart
- 7. The Periodic Table of Elements - insert table 
+        a. Drink a glass of tap water and take a multi-vitamin
+        b. Go outside daily, or leave a window cracked. Spend an hour outside if its been a while, but a few minutes a day can do wonders
+        c. Get access to some Epsom salts and try to pick up some potassium chloride to add to the mix
+        d. Tour local swimming pools, Bromine is tricky to find but if you take a look around and find that some pools are more relaxing than others, then the sensation you feel is caused by Bromine.  Soak there as needed for about 20 minutes. 
 
-If you are unable or unwilling to go directly, you can also envision yourself in each of these places for a moderate energy boost. Try imagining yourself in the produce section at a grocery store, walk through the aisles slowly, take in all of the oranges, grapefruit and apples, the cabbage, lettuce, leeks, carrots, black berries and blue berries, just envision yourself absorbing these things.  
- 
-Go over to the spice section, stand in front of it and just take it all in.  If it feels good to you, keep going! Just imagine yourself slowly walking down the aisles of each place above. 
+The steps above are essential to your well-being, but there are other ways to improve your lifestyle.  Proactively surrounding yourself with nutritious sources will improve your comfort and mood considerably, visit the following places for a few minutes each: 
+
+        a. Go to the produce section at the grocery store
+        b. Go to the spice section at the grocery store 
+        c. Go to the tea section at the grocery store
+        d. Go to a Vitamin Shoppe or GNC
+        e. Go to the biggest crystal store you know 
+        f. Go to the pharmacy at CVS, Walgreens or Walmart
+
+If you are unable or unwilling to go directly, you can also envision yourself in each of these places for a moderate energy boost. Try imagining yourself in the produce section at a grocery store, walk through the aisles slowly, take in all of the oranges, grapefruit and apples, the cabbage, lettuce, leeks, carrots, black berries and blue berries, just envision yourself absorbing these things.  Go over to the spice section, stand in front of it and just take it all in.  If it feels good to you, keep going! Just imagine yourself slowly walking down the aisles of each place above.  
+
+The last two items on the second list might raise eyebrows, why would you need to visit a crystal store and a pharmacy?  Crystals and minerals of all kinds seem to impact spiritual moods, many humans recognize this and maintain small collections.  We're speculating that this is also a form of nutrition for you, and because we can't test it individually we just opted to throw the book at it.   Visit the crystal store and your spiritual body will take what it needs.  Similarly, the pharmacy is a treasure trove of unique substances that may support your well-being, you can make pharmacy visits to absorb various medicines to improve your outlook and lifestyle.
 
 # Target Audience 
 So far, we have begun to tackle the dark cloud, eliminated ghosts and provided options for you to nurish yourselves.  While the dark cloud exercise may take weeks depending on the size of your spirit team, the ghosts are eliminated instantly.  You're whats left.  This book is written to you and your human conterparts, if you are still reading by now you are what I consider a deity. 
@@ -361,7 +371,7 @@ You are overworking yourselves taking care of afflicted people when you could be
 # Round 3: The Dark Cloud's Core
 Earlier we taught you how to take chunks out of the dark cloud.  If you can't go to the Drave it may take days or weeks, but if you are diligent you should be able to eradicate its spiritual field -- the cloud-like spiritual smog. You can liken this spiritual field with depression, so destroying it can alieve feelings of lethargy and dispair.  
 
-The dark cloud has 4 aspects, its smog-like spiritual field, a tentacle that you can occasionally feel, and some sort of nucleus at the center of its consciousness.  Its final trait is that some of its spiritual-smog can stick to you, well I should say that a lot of it will stick to you. This substance can be anywhere, its not as extreme as if you, say one day decided to run through a dark cloud, but after you clear the dark cloud there will probably still be some left and you also may encounter it when you leave your home to go about your day. 
+The dark cloud has 4 aspects, its smog-like spiritual field, a tentacle that you can occasionally feel, and some sort of nucleus at the center of its consciousness.  Its final trait is that some of its spiritual-smog can stick to you, well I should say that a lot of it will stick to you. This substance can be anywhere, its not as extreme as if you, say, one day decided to run through a dark cloud. But after you clear the dark cloud there will probably still be some left and you may encounter it when you leave your home to go about your day. 
 
 Some people are just drowning in the dark cloud's spiritual field, but the dark cloud's tentacle can also attach itself to humans.  This is not common dark cloud behavior, usually the net they cast is so broad that the likelihood of being targeted by the dark cloud is small. BUT, once we began fighting it, we experienced retribution from the dark cloud that you may encounter. 
 
@@ -572,17 +582,13 @@ Join your teammates as they clear their home, their work and their family & frei
 - extended family
 - homeless people 
 - homeless shelters 
-- peoples job 
-- cybersec
 - airports 
 - regular bus stops
 - greyhound bus stops 
 - extended family (especially family you don't get along with)
 - people who don't get along 
 - people who are always pressuring you 
-- homeless people  
 - holidays / family gatherings 
-- schools 
 - protests 
 - hotels
 - Shopping centers
@@ -592,7 +598,6 @@ Join your teammates as they clear their home, their work and their family & frei
 - police officers
 - fire fighters
 - office jobs 
-- airports
 - TV news Anchors and their leadership
 
 # To Humans
@@ -616,11 +621,6 @@ Join your teammates as they clear their home, their work and their family & frei
  # Random
  - spirits "transfer" over meetings / pictures
  - you can call people with pics/video 
- - lock in 
- - magnesium 
- - halogens 
- - outside
- - electrolytes 
  - immunity 
  - trickle, wait an hour 
  - that thing where if you have a dark cloud, you have to "hold" the ball in the middle of their head
