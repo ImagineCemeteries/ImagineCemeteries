@@ -49,7 +49,7 @@ Need a "cue" for meditation
 - has more to do with spreading to office workers than defense
 # Target hotspots / Spread the Word / Call to action
 # To Humans
-# Appendix: Exercizes
+# Appendix: Exercises
 # Appendix: Ghosts vs Deities  
 
 # our enemies 
@@ -157,12 +157,11 @@ Since you've completed the first few steps on nutrition, we want to get you more
 Congratulations!  If you are still here you are a deity. 
 
 # Cliff Notes
-- haven't emphasized returning to the Drave/cemetery weekly for maintenance 
 If all you did was read this chapter, this is what you need to know. This the message that my spirit team wants to give to your spirit team. 
 
     1. Lock In - Some of you like to hover at the top of the skull, like your human is wearing you like a hat.  Not good.  Where you want to be is much lower, over the spinal column and right in-between the ear lobes.  We call this "locking in", this should make you and your human far more comfortable.
 
-    2. If you can travel globally, go swim in the Drava river in Austria.  For an hour.  Its in Europe, it goes through four countries.  Look it up and visit it as soon as you can. 
+    2. If you can travel globally, go swim in the Drava river in Austria.  For an hour.  Its in Europe, it goes through four countries.  Look it up and visit it as soon as you can. Return weekly to prevent getting captured again. 
 
     3. If you can not travel globally, go to the nearest cemetery, pick a tree and get IN the tree.  For an hour.  Return to the cemetery weekly for about 20 minutes.
 
@@ -546,59 +545,92 @@ Its all the same to us, as long as the message is spreading.
 
 
 
-# Target hotspots / Spread the Word / Call to action
+# Target hotspots
 - I want them to target hotspots with their team
-- I want them to take care of themselves and feel happier 
 - I want them to change the people that cause problems in their lives
 - What are hotspots? Pick your favorites - concentrated spiritual activity
-- how to choose a second location: focus on YOU.  Remeber those top 5 people we were talking about? Those might be hotspots. Help them by reaping the ghosts and elimiating the dark cloud. 
+- how to choose a second location: focus on YOU.  Remeber those top 5 people we were talking about? Those might be hotspots. Help them by reaping the ghosts and elimiating the dark cloud.
+- Owe someone a favor?  Does someone owe you a favor? 
 
-An important thing to note is that this book was written in a very specific order, meant to wake you up and support you as quickly as possible.  Once you've gone through it the first time, and gotten this far, you have no need to follow these steps in order.  You can reference the Appendix: Exercizes to choose when you use any technique. 
+If you are one of those types that want to eliminate the dark cloud with a vengence, if your immediate surroundings are fairly cleared you may want a challenge. After you've cleared a zone such as your home, the dark cloud can just trickle in without causing enough trouble that can't be meditated away in a few minutes.  We have some options for you and your team to tackle, places you can go looking for the dark cloud.  You can use these suggestions to keep training, keep teambuilding, and keep saving your kind.  Remember, the dark cloud possesses deitites, and they are all trapped in its grasp.  
 
-Most of you don't want to fight a war, you barely want to get out of bed everyday.  We want you to be safe, happy and comfortable but we also need your help. Focus on yourself first, where you live, where you work, your favorite places to go. Reap the rewards of our practices and build a team. But then, target hotspots, stop the trickle, and spread the word.
+If you are looking for ways to free more of your kind, you can try looking for the dark cloud in places or people where we've seen some concentrated dark cloud or ghost activity, these are potential hotspots: 
 
-So much spiritual literature, media, and human spiritual vessels emphasize that we are all connected.  Well you know what?  We fucking hate it.  We're trying to break these connections. 
-
-You can be more of a messenger than a warrior - different options for roles
-
-Keep training 
-
-Keep teambuilding 
-
-Owe someone a favor?  Does someone owe you a favor? 
-
-
-Join your teammates as they clear their home, their work and their family & freinds.
-- summerize the table of contents, say the same things in a different way 
-
-- be selfish, focus on what you want first, such as peace and quiet
-- behavioral health facilities
-- schools
-- office jobs 
-- trailer parks 
-- jails 
-- prisons 
-- police buildings 
-- extended family
+- people with depression 
 - homeless people 
 - homeless shelters 
+- behavioral health facilities
+- jails 
+- prisons
+- police officers
+- police buildings 
+- fire fighters
+- veterans
+- schools 
+- office jobs
+- protests 
+- trailer parks 
+- hotels
+- appartment buildings
 - airports 
 - regular bus stops
 - greyhound bus stops 
-- extended family (especially family you don't get along with)
-- people who don't get along 
-- people who are always pressuring you 
-- holidays / family gatherings 
-- protests 
-- hotels
 - Shopping centers
-- neighbors you don't get along with 
-- colleagues you don't get along with 
-- veterans 
-- police officers
-- fire fighters
-- office jobs 
-- TV news Anchors and their leadership
+
+How to choose targets?  This is an interesting problem.  For example a homeless person might be particularily afflicted, and if the dark cloud is a mile deep and a mile wide, you can theoretically help hundreds of people caught in its grasp, even though you can't see them.  If you eliminate the dark cloud from a homeless person, they aren't going to be miraculously "cured," they may never bounce back. On the other hand, if you take a depressed person who has a home and can hold a job, thier dark clouds are just as big as a homeless persons, so you can help hundreds of people and you can watch them recover and improve.  Both options are good options, but for practice you might want to stick with people where you can tell you are making a difference.  
+
+A couple notes on the more sensitive items on the list of potential dark cloud targets; police stations are intersting, because meddling ghosts from the communities they service could be tormenting the officers. They may have also picked up some dark clouds by spending so much time in afflicted communities. Veterans could be haunted by their experiences oversea's, litterally still haunted by them.  
+
+Bus stops and airports may not be a good place to find or mediate on the dark cloud, but they are excellent places to spread the message accross your town or the nation.  
+
+If you are just looking to maintain your peace and improve your immediate surroundings, here a quick list of things you will want to keep an eye on.  Be selfish, focus on what you want first, such as peace and quiet. 
+
+- the top 5 people who drive you crazy 
+- people who don't get along 
+- people who are always pressuring you
+- anyone who is difficult to get along with, family, neighbors, collegues 
+- holidays / family gatherings 
+
+Try to keep this perspective in mind, we hope you are feeling better than you have ever felt.  But left alone, the humans surrounding you are all being torn apart by various spiritual entities.  Everytime you look at someone, imagine there is 6 sets of eyes staring back at you.  Instead of trying to get along with the one, innocent human trapped in the middle of it, you are trying to appease 6 spiritual lifeforms with every conversation you have.  
+
+Try this exercize, find a toxic couple or any other two people who don't get along.  Imagine the cemetary around both of those individuals, that is an almost instant decrease of headcount.  Then, assuming they have that dark cloud ick dripping off of them, imagine the drava river flowing over them for a few minutes.  This should releive some strain on any deities that are struggling with the dark cloud.  Watch their interactions afterwards.  Watch them to see if they smile.  Its not a silver bullet, but try it a few times.  Then, of course, you would want to try to talk to the spirits that are left and convince them to go with you to the cemetary. 
+
+Here's the beauty of this.  So we have a darkcloud that is impacting hundreds of humans accross a square mile.  The dark cloud is actually attached to hundreds of spiritual lifeforms in addition to the humans who are just caught in the crosshairs.  If you only convince ONE deity to keep making trips to the cemetary, that single deity can drain the dark cloud from hundreds of humans and rescue any deiety that is also caught in that dark cloud's web. So all we need is 1% success rate to change the world. Half the time, these guys will just go for it. 
+
+
+
+
+# Spread the Word / Call to action
+- I want them to take care of themselves and feel happier 
+- If someone has a dark cloud there is probably some other spirits in their head who can hear you
+- you can spread a message: go to the cemetary 
+- call to action?
+
+- pick something, are you going to be the talker?  What about the person who just loves meditating?  Are you going to hunt spheres and cure ailments like headaches and nausea? What about just getting your spiritual friends out of the house and to a pool, or a vitamin shop? What about just being a ghost hunter? 
+- what role can you play here, how can you help
+- you've been picking up the peices of broken people for years, we're going to teach you how to stop them from breaking 
+- when is the last time you were happy for no reason?  We can give you that sometimes, sometime is better than never 
+
+We do not want to dance on religious lines -- we want all of you, from any walk of life to help us fight this spiritual war. Regardless of your religion we all share the same enemies, united we can change the world. Not to exclude athiests or agnostics, if they're willing we need their help too.  Our aim is to be non-denominational and invite the good, the bad and the ugly to join us.  We need every able-bodied deity, angel, or demon, we need our frenimies and our enimies, we need YOUR frenimies and your enimies to join us. These problems aflict us all.   
+
+Most of you don't want to fight a war, you barely want to get out of bed everyday.  We want you to be safe, happy and comfortable but we also need your help. Focus on yourself first, where you live, where you work, your favorite places to go. Reap the rewards of our practices, but build a team and spread the word.  Join your teammates as they clear their home, their work and their family & freinds.
+
+You can be a messenger instead of a warrior, at this point you should know how much better its possible to feel, but you will still regularily encounter other humans that give you that dark cloud ick.  
+
+Where ever the dark cloud is, there are spirits that share their human's head, and they can hear you.  All you could say is: "Are you sick and tired of being sick and tired?  We are a spiritual team doing some outreach.  We've discovered a spiritual parasite making us all unwell, you can get rid of it by visiting any tree in any cemetary.  If you get in a tree, it will feel like taking a shower, and it will make you feel better, happier. We're trying to reach as many spirits as we can, give it a shot." 
+
+
+An important thing to note is that this book was written in a very specific order, meant to wake you up and support you as quickly as possible.  Once you've gone through it the first time, and gotten this far, you have no need to follow these steps in order.  You can reference the Appendix: Exercizes to choose when you use any technique. 
+
+
+
+So much spiritual literature, media, and human spiritual vessels emphasize that we are all connected.  Well you know what?  We fucking hate it.  We're trying to break these connections. 
+
+
+
+- summerize the table of contents, say the same things in a different way 
+
+
 
 # To Humans
  - imagine cemetaries 
@@ -624,9 +656,14 @@ Join your teammates as they clear their home, their work and their family & frei
  - immunity 
  - trickle, wait an hour 
  - that thing where if you have a dark cloud, you have to "hold" the ball in the middle of their head
+ - the thing where people are really mean to deities with the dark cloud, and now that its gone everyone will be nice to you
+ - just tell people to go to the cemetary 
 
  # Focus on 2 abilities
  - portals 
  - manifesting nutrition 
 
  # How to teach this method 
+
+# Appendix: Exercizes 
+# Appendix: Ghosts vs Deities 
