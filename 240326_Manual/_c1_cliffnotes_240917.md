@@ -1,21 +1,21 @@
-# what does this book aim to accomplish 
+# What does this book aim to accomplish 
 Try to eliminate pain and suffering. We've found ways to drastically reduce pain and suffering, for huamns and deities, and we want to share them with the world. 
 
 In this guide, I will teach you 
-X The ONE message everyone needs to hear: Imagine Cemetaries 
-X pop spheres
-X kill ghosts
-X how to eliminate the dark cloud that seems to be following you around
-X feel better right now, make your life easier 
-X how spirits need to take care of themselves / nutrition  - I will explain self-care 
-X about our common enemies and how to destroy them / spirit war
+- X The ONE message everyone needs to hear: Imagine Cemetaries 
+- X pop spheres
+- X kill ghosts
+- X how to eliminate the dark cloud that seems to be following you around
+- X feel better right now, make your life easier 
+- X how spirits need to take care of themselves / nutrition  - I will explain self-care 
+- X about our common enemies and how to destroy them / spirit war
 - how to fight spirits that cannot be destroyed / spirit war
-X about your kind and other kinds 
-X how to protect your humans
-Human vs person 
-Need a "cue" for meditation
+- X about your kind and other kinds 
+- X how to protect your humans
+- Human vs person 
+- Need a "cue" for meditation
 
-####### Not sure about these 
+####### Almost ready
 # Introduction - To humans and otherwise
 # Before You Begin
 # The Dark Cloud 
@@ -295,7 +295,7 @@ The spiritual world is overpopulated with a variety of entities, your human's sp
 
 Ghosts are the easiest of all to get rid of. But why would you? 
 
-Houses aren't haunted, people are haunted.  In extreme situations, ghosts are taking hostages, turning extroversion into introversion, like a sort of paranoid schizophrenia or extreme social anxiety.  They whisper negative thougts in their minds, tell them their loved ones and their colleagues are conspiring against them, that the birds and the squirrels are watching them. They taunt them about their memories and their daily experiences, they are the reason that your humans lay down in bed at night and can't sleep because suddenly they've got a movie of every mistake or bad experience they've ever had playing in their head. In some caseses ghosts are possessive and will literally hold humans hostage in their own homes, preventing them from leaving the premises. They also fight each other for control of your humans, and will punish your humans if they aren't able to possess them successfully. 
+Houses aren't haunted, people are haunted.  In extreme situations, ghosts are taking hostages, turning extroversion into introversion, like a sort of paranoid schizophrenia or extreme social anxiety.  They whisper negative thougts in their minds, tell them their loved ones and their colleagues are conspiring against them, that the birds and the squirrels are watching them. They taunt them about their memories and their daily experiences, they are the reason that your humans lay down in bed at night and can't sleep because suddenly they've got a movie of every mistake or bad experience they've ever had playing in their head. In some cases ghosts are possessive and will literally hold humans hostage in their own homes, preventing them from leaving the premises. They also fight each other for control of your humans, and will punish your humans if they aren't able to possess them successfully. 
 
 Those are just ghosts residing with you. 
 
