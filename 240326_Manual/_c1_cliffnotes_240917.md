@@ -1,4 +1,4 @@
-# What does this book aim to accomplish 
+# What this book aims to accomplish 
 Try to eliminate pain and suffering. We've found ways to drastically reduce pain and suffering, for huamns and deities, and we want to share them with the world. 
 
 In this guide, I will teach you 
@@ -9,10 +9,8 @@ In this guide, I will teach you
 - X feel better right now, make your life easier 
 - X how spirits need to take care of themselves / nutrition  - I will explain self-care 
 - X about our common enemies and how to destroy them / spirit war
-- how to fight spirits that cannot be destroyed / spirit war
 - X about your kind and other kinds 
 - X how to protect your humans
-- Human vs person 
 - Need a "cue" for meditation
 
 ####### Almost ready
@@ -320,6 +318,7 @@ Think about the top 5 people in your life that drive you crazy.  People who are 
 
 # Feel better _right now_ 
 + add nutrition
+
 Earlier I mentioned that one of our goals is to make you feel better.  Why?  Well first of all, we just want you to feel better. You're one of us and we've been there. You don't only deserve to feel better, you _have_ to feel better to help us unfuck this.  We _need_ your help.  Cleaning up this mess is punishment enough as it is. 
 
 Second of all, we're really not trying to take anyone's pain away. Sometimes when you feel bad you just need to feel it somehow, and it can be offensive to run into a bunch of people telling you "just don't feel bad."  But hear us out, we think the dark cloud is responsible for _making_ you feel bad; moreso than you would on your own.  Many of the things you regret may have been influenced by the dark cloud's negativity.  A few of the symptoms of being surrounded by the dark cloud are irritability, angst, dispair and in many cases spiritual violence. 
@@ -332,7 +331,6 @@ If you really have to, don't kick yourself just yet, save it for later because w
 
 
 # You are supernatural beings with supernatural needs
-- edits done
 When we feel drained, we've found that we can also supplement ourselves directly through our surroundings or indirectly through meditation.  We are supernatural beings with supernatural needs, what is best for the human body isn't enough for us.  
 
 Some may call this "energy vampires", but we disagree. Deities have the ability to pull nutrients from their surroundings, it is so natural you don't even have to think about it.  So if you are "malnourished", or feeling drained you are naturally going to absorb nourishment from your surroundings, including your humans.  This can leave you both feeling exhausted.  Its imperative that your humans take daily multi-vitamins at minimum, and you've got to take care of yourself too. 
@@ -523,13 +521,16 @@ It is important to note that the homeless person's dark cloud is not singular, a
 Homeless people also have deities supporting them, it is important to connect with these deities and share our methods.  Some deities put most of their focus on homeless people, so even attempting this exercise once and cross-training could have an exponetial effect.  Teach the deities that govern homeless people our methods.
 
 # Defending Your Ingress Points
+- has more to do with spreading to office workers than defense
+
 You can train the team you have at your primary dwelling to defend against ghosts and the dark cloud while you spread the message. By the time you've cleared the dark cloud and its core from your home, you will have enough practice to begin training others.  The most defensible dwellings will be those with the largest amount of deities, this could be a workplace instead of a home.  Your next goal is to identify the ingress points and keep teambuilding. 
 
 An ingress point is any connection you have with communities outside your immediate dwelling. This could be:
 
 - your human's job
-- your human's friends
+
 - your human's school
+- your human's friends
 - your human's neighbors
 - your human's extended family
 
@@ -543,15 +544,21 @@ What we're really counting on here is that each of the methods in this guide are
 
 Its all the same to us, as long as the message is spreading.
 
+Schools -- Universities and K-12, are another problematic ingress point. If you've been hearing about the discord in American Universities and the K-12 school system, then we can assume the _motivation_ (of the overseeing deities) to reduce spiritual headcount is there (less spirits, less problems).  Universities, much like the resturant example above, will be highly challenging due to the size and amount of interaction with so many individuals, each human having potentially 6-12 spirits cohabitating with them. Its attainable, especially if you contact the administration, but you might want to start with K-12.   
+
+Elementary school is easy, as the students don't change classrooms much.  You can take your time envisioning the cemetary over the campus, and in each and every room.  Moving on to middle-school and highschool is more challenging, because you'll have to do the whole campus before the students change periods, otherwise you have to start all over.  This can be easily done with a team.  One thing to note here, where you can teach our methods to businesses and be confident that they can maintain spaces cleared of ghosts, even an elementary school may have so much spriritual volume that there is constant ingress.  You can absolutely clear the majority of it in a day, but you may want to stick around for a week - to a month - sweeping the campus daily. Even after a month, ghosts, like the dark cloud, move from areas of high pressure to low pressure, so more ghosts will move in to fill the gaps.  
+
+The real bottom line here is to prevent nasty ghosts from flooding into your home through your children.  So spending an hour a day, for a week or a month, clearing a campus will provide you peace at home. If that's all you want to commit to it, you've still earned yourself a significant amount of peace and you can return to the campus intermittantly to do sweeps if your children become unruly.  Just clearing your children is not enough. 
+
+
+Very much like the resturant example above, because of the size and the amount of interaction with so many individuals, individuals that each have 6-12 spirits cohabitating with them, its going to be a 
+
+Schools on the other hand are a more complicated challenge.  If you've been hearing about the discord in American Universities and the K-12 school system, then we can assume the _motivation_ to reduce spiritual headcount is there (less spirits, less problems), but they may not have the coordination needed to effectively clear those insititutions.  
+- clearing ghosts is easy? 
+
 
 
 # Target hotspots
-- I want them to target hotspots with their team
-- I want them to change the people that cause problems in their lives
-- What are hotspots? Pick your favorites - concentrated spiritual activity
-- how to choose a second location: focus on YOU.  Remeber those top 5 people we were talking about? Those might be hotspots. Help them by reaping the ghosts and elimiating the dark cloud.
-- Owe someone a favor?  Does someone owe you a favor? 
-
 If you are one of those types that want to eliminate the dark cloud with a vengence, if your immediate surroundings are fairly cleared you may want a challenge. After you've cleared a zone such as your home, the dark cloud can just trickle in without causing enough trouble that can't be meditated away in a few minutes.  We have some options for you and your team to tackle, places you can go looking for the dark cloud.  You can use these suggestions to keep training, keep teambuilding, and keep saving your kind.  Remember, the dark cloud possesses deitites, and they are all trapped in its grasp.  
 
 If you are looking for ways to free more of your kind, you can try looking for the dark cloud in places or people where we've seen some concentrated dark cloud or ghost activity, these are potential hotspots: 
@@ -575,7 +582,7 @@ If you are looking for ways to free more of your kind, you can try looking for t
 - airports 
 - regular bus stops
 - greyhound bus stops 
-- Shopping centers
+- shopping centers
 
 How to choose targets?  This is an interesting problem.  For example a homeless person might be particularily afflicted, and if the dark cloud is a mile deep and a mile wide, you can theoretically help hundreds of people caught in its grasp, even though you can't see them.  If you eliminate the dark cloud from a homeless person, they aren't going to be miraculously "cured," they may never bounce back. On the other hand, if you take a depressed person who has a home and can hold a job, thier dark clouds are just as big as a homeless persons, so you can help hundreds of people and you can watch them recover and improve.  Both options are good options, but for practice you might want to stick with people where you can tell you are making a difference.  
 
@@ -586,9 +593,8 @@ Bus stops and airports may not be a good place to find or mediate on the dark cl
 If you are just looking to maintain your peace and improve your immediate surroundings, here a quick list of things you will want to keep an eye on.  Be selfish, focus on what you want first, such as peace and quiet. 
 
 - the top 5 people who drive you crazy 
-- people who don't get along 
+- people who don't get along, or anyone who is difficult to get along with, family, neighbors, collegues
 - people who are always pressuring you
-- anyone who is difficult to get along with, family, neighbors, collegues 
 - holidays / family gatherings 
 
 Try to keep this perspective in mind, we hope you are feeling better than you have ever felt.  But left alone, the humans surrounding you are all being torn apart by various spiritual entities.  Everytime you look at someone, imagine there is 6 sets of eyes staring back at you.  Instead of trying to get along with the one, innocent human trapped in the middle of it, you are trying to appease 6 spiritual lifeforms with every conversation you have.  
@@ -601,34 +607,28 @@ Here's the beauty of this.  So we have a darkcloud that is impacting hundreds of
 
 
 # Spread the Word / Call to action
-- I want them to take care of themselves and feel happier 
-- If someone has a dark cloud there is probably some other spirits in their head who can hear you
-- you can spread a message: go to the cemetary 
-- call to action?
-
-- pick something, are you going to be the talker?  What about the person who just loves meditating?  Are you going to hunt spheres and cure ailments like headaches and nausea? What about just getting your spiritual friends out of the house and to a pool, or a vitamin shop? What about just being a ghost hunter? 
-- what role can you play here, how can you help
 - you've been picking up the peices of broken people for years, we're going to teach you how to stop them from breaking 
-- when is the last time you were happy for no reason?  We can give you that sometimes, sometime is better than never 
+- So much spiritual literature, media, and human spiritual vessels emphasize that we are all connected.  Well you know what?  We fucking hate it.  We're trying to break these connections.
 
 We do not want to dance on religious lines -- we want all of you, from any walk of life to help us fight this spiritual war. Regardless of your religion we all share the same enemies, united we can change the world. Not to exclude athiests or agnostics, if they're willing we need their help too.  Our aim is to be non-denominational and invite the good, the bad and the ugly to join us.  We need every able-bodied deity, angel, or demon, we need our frenimies and our enimies, we need YOUR frenimies and your enimies to join us. These problems aflict us all.   
 
 Most of you don't want to fight a war, you barely want to get out of bed everyday.  We want you to be safe, happy and comfortable but we also need your help. Focus on yourself first, where you live, where you work, your favorite places to go. Reap the rewards of our practices, but build a team and spread the word.  Join your teammates as they clear their home, their work and their family & freinds.
 
-You can be a messenger instead of a warrior, at this point you should know how much better its possible to feel, but you will still regularily encounter other humans that give you that dark cloud ick.  
+You can be a messenger instead of a warrior --  pick something, are you a big talker?  We need people doing outreach as much as we need people meditating.  What about the person who just loves meditating?  Are you going to hunt spheres and cure ailments like headaches and nausea? What about just getting your spiritual friends out of the house and to a pool, or a vitamin shop? What about just being a ghost hunter? You decide what role you want to play.
 
-Where ever the dark cloud is, there are spirits that share their human's head, and they can hear you.  All you could say is: "Are you sick and tired of being sick and tired?  We are a spiritual team doing some outreach.  We've discovered a spiritual parasite making us all unwell, you can get rid of it by visiting any tree in any cemetary.  If you get in a tree, it will feel like taking a shower, and it will make you feel better, happier. We're trying to reach as many spirits as we can, give it a shot." 
+At this point you should know how much better its possible to feel, but you will still regularily encounter other humans that give you that dark cloud ick.  Where ever the dark cloud is, there are spirits that share their human's head, and they can hear you.  All you could say is: "Are you sick and tired of being sick and tired?  We are a spiritual team doing some outreach.  We've discovered a spiritual parasite making us all unwell, you can get rid of it by visiting any tree in any cemetary.  If you get in a tree for an hour, it will feel like taking a shower, and it will make you feel better, happier. We're trying to reach as many spirits as we can, give it a shot." 
 
+At the very least, follow this guide and make sure you are feeling top-notch every day, you can not pour from an empty cup.  Go to the cemetary for an hour a week, or as needed, make your rounds to the grocery store and the vitamin shops.  Ensure your surroundings are peaceful by beating back the ghosts and the dark cloud around your home. Happiness may have seemed fleeting until now, but you are old enough to remember a time when it was easier to be happy.  When is the last time you were happy for no reason?  We can give you that sometimes, sometime is better than never.  We're bringing back the good old days and it starts with YOU. 
 
 An important thing to note is that this book was written in a very specific order, meant to wake you up and support you as quickly as possible.  Once you've gone through it the first time, and gotten this far, you have no need to follow these steps in order.  You can reference the Appendix: Exercizes to choose when you use any technique. 
 
 
 
-So much spiritual literature, media, and human spiritual vessels emphasize that we are all connected.  Well you know what?  We fucking hate it.  We're trying to break these connections. 
+ 
 
 
 
-- summerize the table of contents, say the same things in a different way 
+
 
 
 
